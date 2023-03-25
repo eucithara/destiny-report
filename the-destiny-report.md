@@ -3,9 +3,7 @@ mrgirl
 The Destiny Report
 Retaliation, Negligence, and Sexual Misconduct: How Steven Bonnell II Abuses His Platform
 Max Karson
-2 hr ago
-
-Archive Link Repo (Reddit, Twitter)
+5 hr ago
 Introduction
 
 Steven Kenneth Bonnell II, AKA "Destiny," is a 34-year-old political streamer and was an early pioneer of professional livestreaming as it exists today.
@@ -26,21 +24,21 @@ Link | Archive
 
 Destiny’s audience trusts him to slice through irrational political discourse with ice-cold utilitarian logic. They identify with him strongly, adopting his positions and even his speech patterns, and they have a reputation for harassing Destiny's ever-growing list of ex-friends and enemies.
 
-This report aims to paint a broad picture of Steven's public and private abuses of the substantial power afforded to him by YouTube, his colleagues, and his audience. 
+This report aims to paint a broad picture of Destiny's public and private abuses of the substantial power afforded to him by YouTube, his colleagues, and his audience. 
 
 I will present examples of the following dynamics, which are disturbing individually and worse when combined:
 
-1. Unequal sexual relationships: In the last decade Steven has formed dozens of sexual relationships with small streamers who benefit enormously from their associations with him, especially when they appear on his stream. Frequently these are women who suffer from mental health issues and have expressed suicidal ideations or even been hospitalized for suicide attempts.
+1. Unequal sexual relationships: In the last decade Destiny has formed dozens of sexual relationships with small streamers who benefit enormously from their associations with him, especially when they appear on his stream. Frequently these are women who suffer from mental health issues and have expressed suicidal ideations or even been hospitalized for suicide attempts.
 
-In 2020 Destiny explained why using your platform for sex with smaller creators is unethical, saying, "Let's say that I have a podcast, I got thirty thousand viewers, let's say that there's a girl that messages me, we talked a little bit, she really wants to be on. And I'm like 'Yeah, cool, like you really wanna come on my podcast, blah blah blah. I could probably start sexting her and she'll probably give in and send me nudes and shit because she doesn't want to lose that opportunity. She might not actually want to. She might not be into it really at all, but if I start propositioning her, if she says no to me she might worry like, 'Fuck, if I say no to this guy I'm not gonna make it on that,' yeah. [...] I think it is wrong, yeah. I don't think you should. [...] Nobody can ever know if you're actually that kind of person. That's why it's a very hazy area where you can't really consent in that situation because you don't really know if this guy's gonna fuck you over if you say yes or no to them, if they have that big position of power over you."
+In 2020 Destiny himself explained why using your platform for sex with smaller creators is unethical, saying, "Let's say that I have a podcast, I got thirty thousand viewers, let's say that there's a girl that messages me, we talked a little bit, she really wants to be on. And I'm like 'Yeah, cool, like you really wanna come on my podcast, blah blah blah. I could probably start sexting her and she'll probably give in and send me nudes and shit because she doesn't want to lose that opportunity. She might not actually want to. She might not be into it really at all, but if I start propositioning her, if she says no to me she might worry like, 'Fuck, if I say no to this guy I'm not gonna make it on that,' yeah. [...] I think it is wrong, yeah. I don't think you should. [...] Nobody can ever know if you're actually that kind of person. That's why it's a very hazy area where you can't really consent in that situation because you don't really know if this guy's gonna fuck you over if you say yes or no to them, if they have that big position of power over you."
 
-2. Retaliation: Steven mobilizes his highly involved community (called DGG) to harass those who criticize him, including small streamers he has had (or even still has) sexual relationships with. He has leaked nudes, threatened to leak nudes, secretly recorded and leaked private conversations, and directed his audience to participate in the doxxing of a small streamer he was in a sexual relationship with. In 2011 he even planned to kill a teenager who'd sabotaged his ability to stream.
+2. Retaliation: Destiny mobilizes his highly involved community (called DGG) to harass those who criticize him, including small streamers he has had (or even still has) sexual relationships with. He has leaked nudes, threatened to leak nudes, secretly recorded and leaked private conversations, and directed his audience to participate in the doxxing of a small streamer he was in a sexual relationship with. In 2011 he even planned to kill a teenager who'd sabotaged his ability to stream.
 
 Destiny has acknowledged his bullying behavior.
 
 In a 2020 stream, trans creator Demon Mama told Destiny: "[...] my Twitter was a nice peaceful haven, and then one interaction with you and I've got people dropping t-slurs on me, f-slur–someone telling me I should be hung for being an f-slur. [...] There's just this pattern that keeps happening with your behavior."
 
-Destiny responded, "[...] Cause a lot of harm? I hope, against certain people, that maybe they're bullied off Twitter because there are a lot of toxic fucks on this platform that make it in a horrible fucking place to be around."
+Destiny responded, "[...] Cause a lot of harm? I hope, against certain people, that maybe they're bullied off Twitter because there are a lot of toxic fucks on this platform that make it a horrible fucking place to be around."
 
 On March 15, 2023, in a Twitter argument with Ryan Beard, Destiny wrote: "You're hopping into a bandwagon of people accusing me of being a rape apologist because you're still upset that I bullied you off the internet a year ago. Don't play stupid, you know exactly what you're doing."
 
@@ -50,13 +48,11 @@ Link | Archive
 
 Hasan Piker, now a top Twitch streamer, made his start in Destiny's community before a public falling out. In 2022 he said to his viewers, "I'm not going to rebuild the bridge, bro. No, there is no bridge to be fucking rebuilt. Too many years of him fucking farming content off my ass, you know, trying to get me to turn into a fucking lolcow. I would have probably killed myself if I wasn't able to fucking completely escape the grips of [Destiny's community.] Straight up, one hundred percent."
 
-https://m.twitch.tv/clip/AdorableFrozenHamburgerPastaThat-dwj1oet_e7jbGmoG
-
 (By "farming content," Piker means Destiny was intentionally causing him distress as an easy way to entertain viewers. A "lolcow" is a disgraced internet figure whose misery attracts an audience of sadists.)
 
 When asked for an interview for this report, Piker declined, saying: “My abusive experience is extensively documented and endlessly retconned by DGG.”
 
-4. Narrative control: Steven’s penchant for deception and his astounding dedication to silencing critics makes it difficult for newcomers to understand how his system of content creation operates. Criticism is frequently banned in his subreddit, Discord, and audience chat. Smaller streamers who leech off of his audience, referred to as “orbiters” (I was one of them), act as PR tentacles and will go to great lengths to stay in Steven’s good graces. To shut down criticism outside the community (or "misinformation," as he puts it) Destiny tells his audience "if you see something, say something."
+4. Narrative control: Destiny’s penchant for deception and his astounding dedication to silencing critics makes it difficult for newcomers to understand how his system of content creation operates. Criticism is frequently banned in his subreddit, Discord, and audience chat. Smaller streamers who leech off of his audience, referred to as “orbiters” (I was one of them), act as PR tentacles and will go to great lengths to stay in Destiny’s good graces. To shut down criticism outside the community (or "misinformation," as he puts it) Destiny tells his audience "if you see something, say something."
 
 The above behaviors are not permitted in most professional environments, yet they are allowed on YouTube, except perhaps calls for harassment. But Destiny lays down a foundation of plausible deniability wherever he can, and this allows him to fly under YouTube's radar.
 Who Am I?
@@ -98,31 +94,31 @@ Denims and Littleefox: Two young female streamers, both in sexual relationships 
 
 WhiteNervosa: A small trans streamer whom Destiny flirted with while boosting her career, likely not knowing she was trans. Around the time she started appearing on camera, Destiny lost interest and stopped growing her stream.
 
-Vaush: First a fan, then an orbiter, and then a competitor. Destiny pounced on the opportunity to humiliate and sabotage Vaush when he was accused of sexual harassment. Destiny later cut ties with Vaush because his partner and friend campaigned for Destiny’s deplatforming after he made a call for violence against BLM rioters.
+Vaush: First a fan, then an orbiter, and then a competitor. Destiny pounced on the opportunity to humiliate and sabotage Vaush when he was accused of sexual harassment. Destiny later cut ties with Vaush because his partner and friend campaigned for Destiny’s deplatforming after Destiny made a call for violence against BLM rioters.
 
 Assorted Stories
 
 Lav: A 24-year-old who became sexually involved with Destiny as he encouraged her to start streaming and helped her grow her stream. Destiny set her up to be routinely humiliated and harassed by his community to the point of feeling suicidal. When she spoke out about it, he and his orbiters launched a misogynistic harassment campaign against her.
 
-Me, and Destiny's Platforming of Nick Fuentes: I became Destiny’s friend and orbiter, and slowly realized he was intentionally creating situations where I would be hurt or humiliated. When Destiny became friendly with Nick Fuentes, I confronted him. Destiny banned me from his subreddit, Fuentes’s followers got me banned from YouTube, and I cut ties with Destiny.
+Me, and Destiny's Platforming of Nick Fuentes: I became Destiny’s friend and orbiter, and slowly realized he was intentionally creating situations where I would be hurt or humiliated. When Destiny became friendly with far-right extremist Nick Fuentes, I confronted him. Destiny banned me from his subreddit, Fuentes’s followers got me banned from YouTube, and I cut ties with Destiny.
 
 The DDoS Kid
 
-In the spring of 2011, a teenage boy used a paid service to intermittently flood Steven's IP address with junk traffic, known as a DDoS attack. He'd launch the attacks during Steven's streams, breaking his internet connection and making it impossible for him to work.
+In the spring of 2011, a teenage boy used a paid service to intermittently flood Destiny's IP address with junk traffic, known as a DDoS attack. He'd launch the attacks during Destiny's streams, breaking his internet connection and making it impossible for him to work.
 
-The teen, named Jacob, eventually contacted Steven over Skype so he could gloat. This gave Steven and his fans enough information to track down Jacob's address and phone number.
+The teen, named Jacob, eventually contacted Destiny over Skype so he could gloat. This gave Destiny and his fans enough information to track down Jacob's address and phone number.
 
-Steven called Jacob's phone and demanded to speak to his parents. When Jacob refused and blocked his number, Steven called again via Google Voice and, according to his own retelling, "started sending him pictures over Skype of his sister."
+Destiny called Jacob's phone and demanded to speak to his parents. When Jacob refused and blocked his number, Destiny called again via Google Voice and, according to his own retelling, "started sending him pictures over Skype of his sister."
 
-According to Steven, Jacob's father sent Steven an email denying the extent of Jacob's harassment, and even suggested that Steven befriend Jacob rather than fight him.
+According to Destiny, Jacob's father sent Destiny an email denying the extent of Jacob's harassment, and even suggested that Destiny befriend Jacob rather than fight him.
 
-Instead, Steven crafted a plan to kill Jacob and his father. He later explained on stream:
+Instead, Destiny crafted a plan to kill Jacob and his father. He later explained on stream:
 
 "Oh, I did troll the shit out of the DDOS kid. That's a guy, that's one of the people, legitimately, like, I was so, you have no, it's actually kind of scary how close I was to getting people together to go down to his house and kill him and his family. Or, it would have been just him and his father, because I didn't know anything about–dude, that was some of the most fucked up shit in my entire life, I was so fucking close to doing it.
 
 But I was making so much money on Twitch and I, I don't know if [my son] was involved, and yeah, but for whatever reason I decided that the current life I had wasn't worth the risk of–oh my god, oh my god, I was so close, I had his fucking address, I had streets mapped out, and I had ev–you have no fucking idea, that's when I first started to get an interest in owning a weapon, I got a permit to own a gun and everything."
 
-Ultimately, Steven found a way to defend against the DDoS attacks, and went on to write a widely-referenced protection guide.
+Ultimately, Destiny found a way to defend against the DDoS attacks, and went on to write a widely-referenced protection guide.
 
 In August 2017, responding to a video criticizing his earlier remarks about the incident, Destiny said:
 
@@ -132,21 +128,21 @@ In August 2017, responding to a video criticizing his earlier remarks about the 
 
 "So, I don't know if any of this ends up working out as a justification for killing somebody and their family–probably not. I do get a little bit extreme on my stream sometimes and I do exaggerate things, but I mean for the most part I'll take credit for what I say. I'm not going to sit here and say that like, "Oh you know I never even thought about it" or whatever, because that would be a lie. I was very, very fucking frustrated with this kid and I had exhausted every single legal option. Is that a justification for killing somebody? Probably not, it's probably not a good reason to do it."
 
-In December 2017, Steven said of the controversy: "Yeah, the kid I wanted to kill? I still stand by that. Fuck that dude and his family."
+In December 2017, Destiny said of the controversy: "Yeah, the kid I wanted to kill? I still stand by that. Fuck that dude and his family."
 
-Speaking to two streamers named Mr. Metokur and Andy Warski, Steven said the FBI had refused to help and that a lawsuit would have been too expensive.
+Speaking to two streamers named Mr. Metokur and Andy Warski, Destiny said the FBI had refused to help and that a lawsuit would have been too expensive.
 
 Destiny: So I was basically completely out of options. So pretty much at this point in my life, my–
 
 Metokur: So you went with the next option–murder.
 
-Steven: Well, I'm curious, so I'll spin it to you, what would you do at this point? Would you just quit your whole career and go do something else, or… and just, to be clear, I don't think I was legitimately planning to murder him, I was just incredibly fucking frustrated.
+Destiny: Well, I'm curious, so I'll spin it to you, what would you do at this point? Would you just quit your whole career and go do something else, or… and just, to be clear, I don't think I was legitimately planning to murder him, I was just incredibly fucking frustrated.
 
 Warski: You keep saying you were, though.
 
 Metokur: You've got a streamer who's admitting that he tracked down information on a minor to find out where he lives, that streamer owns a gun and he's shown that gun multiple times on stream, he's made numerous statements that he had a plan to follow or kill this child and that he isn't remorseful about it. My question is how the fuck did the FBI not come to talk to you about that, rather than the kid bombing your stream?
 
-Steven: I don't know, my dude…
+Destiny: I don't know, my dude…
 
 On March 12, 2023, Destiny again argued that lethal force against the DDoS kid would have been justified during a debate about Islam with a streamer named Qorantos:
 
@@ -200,9 +196,9 @@ Link | Archive
 
 Mia Rose
 
-On January 1, 2012, when Steven was 23, he drunkenly groped the breasts of adult actress and fellow streamer Mia Rose during a livestream. They did have a sexual relationship at the time, and she did (voluntarily) sit on his lap during the stream–but the groping was unwanted.
+On January 1, 2012, when Destiny was 23, he drunkenly groped the breasts of adult actress and fellow streamer Mia Rose during a livestream. They did have a sexual relationship at the time, and she did (voluntarily) sit on his lap during the stream–but the groping was unwanted.
 
-Steven has consistently acknowledged this incident as a sexual assault, though he tends to joke about it.
+Destiny has consistently acknowledged this incident as a sexual assault, though he tends to joke about it.
 
 In 2022 he suggested that he may have been a victim of peer pressure to drink that night:
 
@@ -238,13 +234,13 @@ Based on their public statements, neither Mia Rose nor Destiny seem to think thi
 
 Bluetea
 
-Bluetea was a competitive StarCraft 2 streamer, like Steven.
+Bluetea was a competitive StarCraft 2 streamer, like Destiny.
 
 In August 2012, she logged into his Twitter and tweeted out photos of his genitals.
 
 She posted the following explanation to Destiny's subreddit:
 
-I'll come out and say this is Bluetea. I really have nothing to lose. Long story short, Steven leaked nude pictures of me to his Skype friends. He then joked about how "fucking hideous" my face is compared to my "beautiful body." They joked about how I look like Shrek. I do have a big nose, I guess.
+I'll come out and say this is Bluetea. I really have nothing to lose. Long story short, Destiny leaked nude pictures of me to his Skype friends. He then joked about how "fucking hideous" my face is compared to my "beautiful body." They joked about how I look like Shrek. I do have a big nose, I guess.
 
 Someone who apparently was in the chat room emailed me from a gmail account consisting of a bunch of random numbers. It had the chat log.
 
@@ -256,7 +252,7 @@ TL;DR - Don't leak nudes of me because I will steal your Twitter and post pictur
 
 Deleted | Archive
 
-Steven responded within 11 minutes:
+Destiny responded within 11 minutes:
 
 Was to two people***, not an entire chat room of people, two people that I consider pretty close friends.
 
@@ -272,9 +268,9 @@ Link | Archive
 
 Within the next several hours, Bluetea deleted her Reddit account.
 
-Steven dropped out of a tournament he was playing in.
+Destiny dropped out of a tournament he was playing in.
 
-The response from Steven's fans was overwhelmingly negative, but he doubled down in another comment: 
+The response from Destiny's fans was overwhelmingly negative, but he doubled down in another comment: 
 
 It's not about "teaching someone a lesson," it's just punishment. I'm pretty sure what she did was illegal on quite a few levels, and the fact that it's damaging to a business that I use to support my family makes me a little less willing to "turn the other cheek."
 
@@ -282,7 +278,7 @@ Yeah, I acted pretty scumbaggish and shared her picture with a couple friends. B
 
 Fans were quick to point out that nude pictures were unlikely to harm his career: You really think you'll take a serious financial hit from this? I imagine you might lose a reasonable number of twitter followers, but I'd be surprised if this really hurts your stream even in the short term.
 
-Erisanne, Steven's then-girlfriend (who was not aware he'd been sexting with Bluetea), made a supportive public statement asking fans to stop talking about the incident, for Steven's sake.
+Erisanne, Destiny's then-girlfriend (who was not aware he'd been sexting with Bluetea), made a supportive public statement asking fans to stop talking about the incident, for Destiny's sake.
 
 A commenter asked her: How does it feel to come home from a long day of shift work, and live with a piece of shit. How does it feel to know that he is cheating on you, he was trying to pick up women at the bar last night.
 
@@ -290,11 +286,11 @@ Erisanne replied: Languished, forlorn, bereft, desolate. Thank you.
 
 Melina
 
-In February 2019, when Steven was 30, he flew to New Zealand to meet two young Swedish fans he'd been speaking to for months. Melina and her boyfriend Max were 20 and 19 years old and in a polyamorous relationship.
+In February 2019, when Destiny was 30, he flew to New Zealand to meet two young Swedish fans he'd been speaking to for months. Melina and her boyfriend Max were 20 and 19 years old and in a polyamorous relationship.
 
-Max played the role of cameraman for much of the livestreamed trip, looking on awkwardly as Steven made advances on Melina. At one point, Steven left Max in charge of the stream while he and Melina went into the bedroom and shut the door. Max joked that he was being cucked. Vocalizations can be heard in the background after that. Most fans agree they are sex sounds, but Destiny maintains he and Melina were not having sex. (This was after Max had admitted on stream that Melina was his only partner, casting doubt on the legitimacy of his "poly" identification.)
+Max played the role of cameraman for much of the livestreamed trip, looking on awkwardly as Destiny made advances on Melina. At one point, Destiny left Max in charge of the stream while he and Melina went into the bedroom and shut the door. Max joked that he was being cucked. Vocalizations can be heard in the background after that. Most fans agree they are sex sounds, but Destiny maintains he and Melina were not having sex. (This was after Max had admitted on stream that Melina was his only partner, casting doubt on the legitimacy of his "poly" identification.)
 
-A user in Steven's subreddit posted:
+A user in Destiny's subreddit posted:
 
 The polygamy isn't what's off-putting about these streams. What's off-putting is that a 30 year old man who claims to understand power dynamics flew halfway across the globe to have sex with young women who have obviously developed parasocial relationships with him.
 
@@ -302,15 +298,15 @@ The polygamy isn't what's off-putting about these streams. What's off-putting is
 
 Link | Archive
 
-Melina eventually broke up with Max and moved to the United States to live with Steven. They are in an open relationship and were married in December 2021.
+Melina eventually broke up with Max and moved to the United States to live with Destiny. They are in an open relationship and were married in December 2021.
 
-Initially boosted by her association with Steven, Melina has become a successful streamer in her own right, focusing on travel, fitness, and showing off her body.
+Initially boosted by her association with Destiny, Melina has become a successful streamer in her own right, focusing on travel, fitness, and showing off her body.
 
-Steven has described himself as psychologically abusive in relationships. In January 2021, he said: "I'm a really rough person to be in a relationship with, okay? Anybody that survives a relationship with me for more than, like, six months, okay, props to that person, 'cause they're going through some severe fucking psychological abuse. It's a fucking hard thing to deal with. I'm not joking."
+Destiny has described himself as psychologically abusive in relationships. In January 2021, he said: "I'm a really rough person to be in a relationship with, okay? Anybody that survives a relationship with me for more than, like, six months, okay, props to that person, 'cause they're going through some severe fucking psychological abuse. It's a fucking hard thing to deal with. I'm not joking."
 
 Destiny has publicly stated that he has access to Melina's Discord account, and is thus privy to her communications with others in the streaming world. On January 14, 2021, Destiny said on stream that they both have access to each other's DMs, but that Melina's jealousy may dissuade her from reading his. In 2022 Destiny was revealed to be hiding a serious affair as well as a sexting relationship from Melina, both of which used Discord DMs as a primary form of communication.
 
-Friends and viewers of Steven have voiced suspicions that he sometimes impersonates Melina by sending private messages from her account.
+Friends and viewers of Destiny have voiced suspicions that he sometimes impersonates Melina by sending private messages from her account.
 
 Melina has told multiple people that the pain of their relationship drives her to thoughts of suicide, and these conflicts frequently spill out into public view.
 
@@ -318,39 +314,39 @@ Bob7
 
 Note: This report is agnostic as to Bob7's character or whether he sexually harassed any women, and this section is included to highlight Destiny's behavior and use of his platform.
 
-Before my first conversation with Melina in January 2022, Steven leaned into the doorway behind her and said: "Don't let him mindfuck you."
+Before my first conversation with Melina in January 2022, Destiny leaned into the doorway behind her and said: "Don't let him mindfuck you."
 
 I couldn't understand why he'd said that until I did my research for this story.
 
 Bob7, a small streamer, was Melina's confidant for most of 2020 when he was 25 and she was 22. His ostensible goal was to improve her mental health, and he compared their relationship to that of a therapist and a patient. They also sexted.
 
-Melina shared intimate details of her relationship with Steven, including how his treatment of her made her feel suicidal. She also told Bob private stories about Steven's past.
+Melina shared intimate details of her relationship with Destiny, including how his treatment of her made her feel suicidal. She also told Bob private stories about Destiny's past.
 
-Believing that Steven was manipulative and abusive, Bob encouraged Melina to either confront him or leave the relationship. One time when she did confront him, Steven asked if the confrontation had been Bob's idea.
+Believing that Destiny was manipulative and abusive, Bob encouraged Melina to either confront him or leave the relationship. One time when she did confront him, Destiny asked if the confrontation had been Bob's idea.
 
-Eventually, Melina fell in love with Bob, hinting that she would only be able to leave Steven if she had another relationship to flee to.
+Eventually, Melina fell in love with Bob, hinting that she would only be able to leave Destiny if she had another relationship to flee to.
 
-Bob was not interested in Melina. He was, however, interested in Boze, the 28-year-old female streamer who was also dating Steven.
+Bob was not interested in Melina. He was, however, interested in Boze, the 28-year-old female streamer who was also dating Destiny.
 
-Bob and Boze became fast friends, gossiping daily about the dysfunctional relationship between Steven and Melina. Sometimes the gossiping took the form of Bob actively warning Boze about Steven's manipulative nature and telling her the secrets he'd learned from Melina.
+Bob and Boze became fast friends, gossiping daily about the dysfunctional relationship between Destiny and Melina. Sometimes the gossiping took the form of Bob actively warning Boze about Destiny's manipulative nature and telling her the secrets he'd learned from Melina.
 
-You may have figured this out already, but Melina isn't fond of sharing Steven with other women, and Steven doesn't like to deal with the emotional backlash from Melina. But because of Bob's meddling, Boze and Melina had come to hate each other, and both were wary of Steven.
+You may have figured this out already, but Melina isn't fond of sharing Destiny with other women, and Destiny doesn't like to deal with the emotional backlash from Melina. But because of Bob's meddling, Boze and Melina had come to hate each other, and both were wary of Destiny.
 
-Eventually, the two women would meet and compare notes on Bob. They realized he was prone to shit-talking behind each of their backs, and decided that it was he who was manipulative after all, and not Steven (apparently it didn't occur to them that both men might be manipulative).
+Eventually, the two women would meet and compare notes on Bob. They realized he was prone to shit-talking behind each of their backs, and decided that it was he who was manipulative after all, and not Destiny (apparently it didn't occur to them that both men might be manipulative).
 
-Boze bluntly informed Bob that she no longer wished to be friends. Melina confronted him about degrading things he had said about her, like saying her stream was best watched with the sound off. Bob's grip on the women in Steven's life had finally been loosened.
+Boze bluntly informed Bob that she no longer wished to be friends. Melina confronted him about degrading things he had said about her, like saying her stream was best watched with the sound off. Bob's grip on the women in Destiny's life had finally been loosened.
 
-At this point, Steven decided to use his platform to destroy Bob.
+At this point, Destiny decided to use his platform to destroy Bob.
 
 On January 3, 2021, Destiny engineered a group call including six women who knew Bob and, with the help of one of the women, secretly recorded the others talking about their experiences with Bob. 
 
-Destiny's opening salvo was a January 4, 2021 stream uploaded with the title "Bob7 Allegations Involving Melina, BigBossBoze, Peach and More," in which he painted Bob as a malicious womanizer out to torpedo Steven's personal relationships.
+Destiny's opening salvo was a January 4, 2021 stream uploaded with the title "Bob7 Allegations Involving Melina, BigBossBoze, Peach and More," in which he painted Bob as a malicious womanizer out to torpedo Destiny's personal relationships.
 
-During the stream, Steven described his strategy for gaining control of the situation: "I play a little Death Note game where I'm having Melina send certain messages to Bob, and now I'm reading messages between Bob and Melina because I can read Melina's DMs, Boze is sending me messages between her and Bob so I can read those […]."
+During the stream, Destiny described his strategy for gaining control of the situation: "I play a little Death Note game where I'm having Melina send certain messages to Bob, and now I'm reading messages between Bob and Melina because I can read Melina's DMs, Boze is sending me messages between her and Bob so I can read those […]."
 
 He ended the video with a threat, should Bob attempt to defend himself: "If it ever like–if push comes to shove, there is a lot of like really really realy–like this is all kind of like dumb shit. There's a lot of like really fucked up shit, fucked that Bob7 did that even people in his personal life don't know about that's really fucked, but that will probably never see the light of day. I shouldn't actually say that cuz now I'm like, teasing it, but if Bob7 decides to try to make some response video like vindicating himself I'll probably just like nuke that shit from orbit."
 
-Bob countered with a 40-page document containing dozens of screenshots to paint a picture of Steven as an emotional abuser trying to shut down Bob's genuine concerns about the women in his life. This was fairly successful, and had Steven uncharacteristically on the defensive for a moment, but with Steven's second and final attack, Bob's fate would be sealed.
+Bob countered with a 40-page document containing dozens of screenshots to paint a picture of Destiny as an emotional abuser trying to shut down Bob's genuine concerns about the women in his life. This was fairly successful, and had Destiny uncharacteristically on the defensive for a moment, but with Destiny's second and final attack, Bob's fate would be sealed.
 
 The video, streamed January 17, 2021, was titled: "Bob7 Manifesto: Addressing My Allegations." It currently sits at more than 700,000 views. In the video, he read aloud a document he'd written titled "The Bob7 Manifesto," which again painted Bob as a slimy sexual harasser. He also played clips from the January 3 call, some of which Destiny had edited to make them more damning of Bob.
 
@@ -434,107 +430,107 @@ Ana
 
 Destiny shows Mr. Girl DMs, include part where he says this is mentally destroying Anna and laughs, then corrects himself, and when he says he wasn't holding her hostage, but then she says that he currently is
 
-In October 2019, Ana was 29 and had no social media following. Before ever meeting Steven, Ana tweeted about how he lacks empathy and probably has a personality disorder. In another streamer's chat, she criticized Steven's "repeated casual sex with no interest in an intimate relationship."
+In October 2019, Ana was 29 and had no social media following. Before ever meeting Destiny, Ana tweeted about how he lacks empathy and probably has a personality disorder. In another streamer's chat, she criticized Destiny's "repeated casual sex with no interest in an intimate relationship."
 
-By January of 2020 she had somewhat warmed to Steven. She messaged him on Instagram and introduced herself as a graduate student in psychology. According to Ana, Steven asked if she was familiar with open relationships. Given his open relationship with Melina, Ana took the question to be a sexual overture, to which she was receptive.
+By January of 2020 she had somewhat warmed to Destiny. She messaged him on Instagram and introduced herself as a graduate student in psychology. According to Ana, Destiny asked if she was familiar with open relationships. Given his open relationship with Melina, Ana took the question to be a sexual overture, to which she was receptive.
 
-On May 22, 2020, Ana and Steven did their first stream together–a debate about open relationships. With the audience unaware of their sexting, Ana introduced the topic as "just some research that I was recently reading about," and presented research indicating that non-monogamy is correlated with predatory personality traits such as narcissism and Machiavellianism.
+On May 22, 2020, Ana and Destiny did their first stream together–a debate about open relationships. With the audience unaware of their sexting, Ana introduced the topic as "just some research that I was recently reading about," and presented research indicating that non-monogamy is correlated with predatory personality traits such as narcissism and Machiavellianism.
 
-They soon did a second stream about altruism, in which Ana argued that doing things for other people increases psychological well-being (in my opinion because she wanted to challenge Steven's lack of empathy).
+They soon did a second stream about altruism, in which Ana argued that doing things for other people increases psychological well-being (in my opinion because she wanted to challenge Destiny's lack of empathy).
 
-That summer, Steven proposed that he visit Ana for a week.
+That summer, Destiny proposed that he visit Ana for a week.
 
-Ana agreed, but she expressed concern that he would grow distant or even cut her off after they had sex. Steven assured her: "I understand the concern. But that would be a huge time investment just to hook up with someone xD"
+Ana agreed, but she expressed concern that he would grow distant or even cut her off after they had sex. Destiny assured her: "I understand the concern. But that would be a huge time investment just to hook up with someone xD"
 
-A week before the scheduled meeting, Ana and Steven did a third stream–a debate about whether "dark triad" antisocial personality traits are correlated with open relationships.
+A week before the scheduled meeting, Ana and Destiny did a third stream–a debate about whether "dark triad" antisocial personality traits are correlated with open relationships.
 
-For the first 90 minutes, Ana tried to convince Steven that people in open relationships have trust issues and avoidant attachment patterns. Not taking the bait, Steven kept the conversation intellectual. Ana commented that his judgment might be impaired because the topic hits close to home. Steven called this a power play and they argued about it for two hours. Eventually Ana started crying and told him he was being abusive.
+For the first 90 minutes, Ana tried to convince Destiny that people in open relationships have trust issues and avoidant attachment patterns. Not taking the bait, Destiny kept the conversation intellectual. Ana commented that his judgment might be impaired because the topic hits close to home. Destiny called this a power play and they argued about it for two hours. Eventually Ana started crying and told him he was being abusive.
 
-At the end of the (four-and-a-half hour) conversation, Ana said Steven should ban any chatters who called her abusive and manipulative, and he politely avoided the suggestion.
+At the end of the (four-and-a-half hour) conversation, Ana said Destiny should ban any chatters who called her abusive and manipulative, and he politely avoided the suggestion.
 
-In mid-August, the week of Melina's 22nd birthday, Steven and Ana spent several days in a hotel together. They had sex, talked, and he did his normal streams from the hotel room
+In mid-August, the week of Melina's 22nd birthday, Destiny and Ana spent several days in a hotel together. They had sex, talked, and he did his normal streams from the hotel room
 
 Despite an agreement to keep the visit a secret, Ana briefly streamed from the hotel room as well, effectively outing their sexual relationship. She would later claim this was unintentional, but I'm skeptical.
 
-Ana has described Steven as having a "revenge kink" where manipulative dynamics involving lying and blackmail are fetishized, and I mention it now because the rest of this story will make a lot more sense if you are aware of this.
+Ana has described Destiny as having a "revenge kink" where manipulative dynamics involving lying and blackmail are fetishized, and I mention it now because the rest of this story will make a lot more sense if you are aware of this.
 
-At the end of the week, Steven left to join Melina in Sweden. From the airport, he DMed Ana: "OKAY ABOUT TO BOARD MY FIRST FLIGHT. THANKS FOR THE PAST FEW DAYS ANA I HAD A LOT OF FUN 🙂"
+At the end of the week, Destiny left to join Melina in Sweden. From the airport, he DMed Ana: "OKAY ABOUT TO BOARD MY FIRST FLIGHT. THANKS FOR THE PAST FEW DAYS ANA I HAD A LOT OF FUN 🙂"
 
-She replied: "I did too Steven❤️Have safe flights!!! Talk to you later!"
+She replied: "I did too Destiny❤️Have safe flights!!! Talk to you later!"
 
-But the next day, she wrote: "Oh boy I'm pretty sad… it just kinda hit me today out of nowhere 😔 I also feel angry with you… cuz you did make it sound like you're more poly & willing to date other people… Your lifestyle choices are extremely abnormal and not at all like most poly people. I mean do you really just see me as a friend still? How… is that even possible to be that callous and cold, Steven? I don't want to believe that you are."
+But the next day, she wrote: "Oh boy I'm pretty sad… it just kinda hit me today out of nowhere 😔 I also feel angry with you… cuz you did make it sound like you're more poly & willing to date other people… Your lifestyle choices are extremely abnormal and not at all like most poly people. I mean do you really just see me as a friend still? How… is that even possible to be that callous and cold, Destiny? I don't want to believe that you are."
 
 He replied: "Hmmm I mean 'as a friend still' I mean what do you mean? I mean sex stuff aside having met you in real life and talked and gone around and stuff you're definitely a way closer friend than you were before for sure."
 
 Ana responded with several messages containing increasingly sharp criticisms, culminating in "The fact that you feel entitled to get sex from tons of different people but not have to meet their emotional needs (which are sexual needs!) is textbook Narcissism. It's extreme entitlement and selfishness that enables a person to treat other human beings the way you do. It's morally reprehensible."
 
-Over the next few days Ana sent dozens of anxious and critical messages with little response from Steven. Eventually he would be warm again, even flirtatious, but not consistently.
+Over the next few days Ana sent dozens of anxious and critical messages with little response from Destiny. Eventually he would be warm again, even flirtatious, but not consistently.
 
-Meanwhile, Steven's fans were putting the pieces together. From Ana's stream chat they asked if she'd slept with Steven during his trip. She giggled and said they shouldn't ask her that, which many took as confirmation of their suspicions.
+Meanwhile, Destiny's fans were putting the pieces together. From Ana's stream chat they asked if she'd slept with Destiny during his trip. She giggled and said they shouldn't ask her that, which many took as confirmation of their suspicions.
 
-Not receiving the promised attention from Steven, Ana sent him Psychology Today articles about stonewalling and narcissism. She also criticized what she perceived as his sociopathic vindictiveness, in part because of a story he'd told her (and others) about how he once lied to his ex's boss to get her fired from her job.
+Not receiving the promised attention from Destiny, Ana sent him Psychology Today articles about stonewalling and narcissism. She also criticized what she perceived as his sociopathic vindictiveness, in part because of a story he'd told her (and others) about how he once lied to his ex's boss to get her fired from her job.
 
-On one of her own streams, she criticized Steven for moving across the country from his son. When I spoke to her, she told me she'd innocently mentioned some psychology research about how sons should spend time with their fathers, but the clip was not how she described it at all. In reality, while reading a chat message saying Steven was a good father, Ana burst into mocking laughter before saying: "Yeah, because we all know to be a good father the best thing to do is move a million miles away from your son–I'm gonna stop, before someone clips that shit."
+On one of her own streams, she criticized Destiny for moving across the country from his son. When I spoke to her, she told me she'd innocently mentioned some psychology research about how sons should spend time with their fathers, but the clip was not how she described it at all. In reality, while reading a chat message saying Destiny was a good father, Ana burst into mocking laughter before saying: "Yeah, because we all know to be a good father the best thing to do is move a million miles away from your son–I'm gonna stop, before someone clips that shit."
 
-Someone did clip it, and on October 5, 2020, Steven did his first Ana attack stream.
+Someone did clip it, and on October 5, 2020, Destiny did his first Ana attack stream.
 
 "I have had some clips linked to me today. I don't normally torch bridges, unless other people want to do it first, in which case, fuck it." He played the clip of Ana calling him a bad father, and launched into a play-by-play of their relationship, mostly complaining that she had messaged him relentlessly after they had sex.
 
 One chatter asked: "Destiny why are you doing this? What do you gain out of publicly ridiculing this girl?"
 
-Steven replied: "I'm not trying to–the problem is she just keeps saying really fucking rude and disgusting shit about me on her stream. It's really fucking irritating, she doesn't realize how fucked in the head it is."
+Destiny replied: "I'm not trying to–the problem is she just keeps saying really fucking rude and disgusting shit about me on her stream. It's really fucking irritating, she doesn't realize how fucked in the head it is."
 
-He read aloud some of their DMs (he'd also provided some screenshots to his hungry fans) and accused Ana of victim-blaming Steven for a past relationship in which he claims his ex was physically abusive.
+He read aloud some of their DMs (he'd also provided some screenshots to his hungry fans) and accused Ana of victim-blaming Destiny for a past relationship in which he claims his ex was physically abusive.
 
 By the end of the stream, the chat had made hundreds of angry and critical comments about Ana ("YOU LITERALLY SLEPT WITH A PSYCHO").
 
-Ana heard about the stream soon after it happened, and messaged Steven that night: "Why would you do this…. I'm freaking out… Shouldn't you be reported for outing my private sexual details???"
+Ana heard about the stream soon after it happened, and messaged Destiny that night: "Why would you do this…. I'm freaking out… Shouldn't you be reported for outing my private sexual details???"
 
-At 4:05am: "I'm just really so sad Steven… I trusted you to talk with me about how you were feeling about me… Also I'm sorry for all the messages but I've been freaking out and panicking for hours."
+At 4:05am: "I'm just really so sad Destiny… I trusted you to talk with me about how you were feeling about me… Also I'm sorry for all the messages but I've been freaking out and panicking for hours."
 
 The next night: "I can't tell if this is you just wanting some space or is this you cutting off the friendship? Silence doesn't communicate anything."
 
-The following day, October 7, Steven agreed to talk to Ana again… on stream.
+The following day, October 7, Destiny agreed to talk to Ana again… on stream.
 
-Before the conversation began, Steven was nervous and fidgety.
+Before the conversation began, Destiny was nervous and fidgety.
 
-Steven asked his friend Dan, "Do you think I should hash it all out on stream?"
+Destiny asked his friend Dan, "Do you think I should hash it all out on stream?"
 
 Dan answered, "A hundred percent."
 
 Dan Saltman is a family man, and a recurring character on the stream.
 
-"I feel like there's a non-zero chance that this person would actually kill themselves, that's the only reason why I feel like it's probably not a good idea," Steven said.
+"I feel like there's a non-zero chance that this person would actually kill themselves, that's the only reason why I feel like it's probably not a good idea," Destiny said.
 
 Dan pressed him: "You have to, though. It's not gonna end, and it's just fucking cringe for everyone else…"
 
 "Well, I feel like at this point I'm literally capitalizing on somebody else's mental illness for my profit."
 
-And with that, Steven added Ana to the stream.
+And with that, Destiny added Ana to the stream.
 
-Steven repeated his complaints about Ana's endless critical messages about his psychology, and they argued about whether Ana has the right to publicly call Steven's sexual relationships abusive, with Steven saying: "You're not allowed to express concern with any of my personal relationships that I don't want your opinion on."
+Destiny repeated his complaints about Ana's endless critical messages about his psychology, and they argued about whether Ana has the right to publicly call Destiny's sexual relationships abusive, with Destiny saying: "You're not allowed to express concern with any of my personal relationships that I don't want your opinion on."
 
-Steven also defended his tendency to retaliate against others: "When you say 'you've left a trail of destruction behind you,' the implication there is generally that I'm traumatizing or abusing or hurting people that otherwise don't deserve it…"
+Destiny also defended his tendency to retaliate against others: "When you say 'you've left a trail of destruction behind you,' the implication there is generally that I'm traumatizing or abusing or hurting people that otherwise don't deserve it…"
 
 Ana: Nobody deserves that… How could you say that?
 
-Steven: Because sometimes people do real dickish things, and I think if you do dickish things back, it's not the worst thing in the world.
+Destiny: Because sometimes people do real dickish things, and I think if you do dickish things back, it's not the worst thing in the world.
 
 Ana: That doesn't give you the right to do anything back at them. That gives you no right to retaliate.
 
-Steven: Yeah, we're not talking about who's right–first of all, I have the right to do anything I want. Okay? Fuck that.
+Destiny: Yeah, we're not talking about who's right–first of all, I have the right to do anything I want. Okay? Fuck that.
 
 Ana: No you don't. See? Right there. Entitlement.
 
-Steven: That's not entitlement. Wait, what do you mean? As long as I'm not hurting anybody else, I have a right to talk about or do anything I want.
+Destiny: That's not entitlement. Wait, what do you mean? As long as I'm not hurting anybody else, I have a right to talk about or do anything I want.
 
 Ana: Okay, well you just said you have a right to do whatever you want.
 
-Steven: Wait, what did you think I meant with that, Ana? Did you think I meant I should be able to shoot somebody, or punch somebody, or choke somebody? Do you really think that's what I meant with that? Is that the read we're going with here?
+Destiny: Wait, what did you think I meant with that, Ana? Did you think I meant I should be able to shoot somebody, or punch somebody, or choke somebody? Do you really think that's what I meant with that? Is that the read we're going with here?
 
-Because Ana felt obligated to keep Steven's secret about getting his ex fired from her job, his fans were clueless about the context of this argument.
+Because Ana felt obligated to keep Destiny's secret about getting his ex fired from her job, his fans were clueless about the context of this argument.
 
-Another creator, Linus Tech Tips, jumped in with a lukewarm defense of Destiny's vindictiveness.
+A member of Destiny's server named Linus offered a lukewarm defense of Destiny's vindictiveness.
 
 Linus: Wait, Ana, are there varying degrees of abuse? Like, is there a greater and lesser form of abuse?
 
@@ -550,11 +546,11 @@ Ana: It's still abusive.
 
 Linus: Yes, it's still abusive. But maybe in the context of Destiny being a streamer, and Destiny being an entertainer, and these being public conflicts, and Destiny's desire to drum up attention–these are things that a normal person doesn't interact with, right? You can't prescribe these things that you would talk about in a normal intimate relationship to someone who has a wide public image. Right?
 
-When Ana asked Steven if he thinks he's harming people, he replied, "Yeah probably, but if they're inflicting harm onto me I don't really care that much."
+When Ana asked Destiny if he thinks he's harming people, he replied, "Yeah probably, but if they're inflicting harm onto me I don't really care that much."
 
 Ana: That's what concerns me.
 
-Steven: Oh my god.
+Destiny: Oh my god.
 
 Linus: I think that most people are okay inflicting some amount of harm on others
 
@@ -564,21 +560,21 @@ Linus: …it's extremely difficult for me to not ever be mean ever. Right? Like,
 
 Ana: But I think what you're talking about is people making normal mistakes and stuff, but I'm talking about an observable pattern of behavior.
 
-Linus: I don't know that you could call that observable pattern of behavior out in the clinical sense… My main observation here is that Steven has behaviors that probably cause you a lot of anxiety, and your anxiety causes Steven to feel a lot of stress…
+Linus: I don't know that you could call that observable pattern of behavior out in the clinical sense… My main observation here is that Destiny has behaviors that probably cause you a lot of anxiety, and your anxiety causes Destiny to feel a lot of stress…
 
-Linus said that Ana doesn't have enough information about Steven's relationships to call his behavior abusive, and that without reaching out to the other people affected, which would be inappropriate, she can't comment on it.
+Linus said that Ana doesn't have enough information about Destiny's relationships to call his behavior abusive, and that without reaching out to the other people affected, which would be inappropriate, she can't comment on it.
 
-Steven capped off the defensive triple-team by saying, "You're making yourself the victim. I'm the victim here," and later adding, "If you want to bring any friend into here and you want to let me explain what's happened, I guarantee you they will never ever side with you."
+Destiny capped off the defensive triple-team by saying, "You're making yourself the victim. I'm the victim here," and later adding, "If you want to bring any friend into here and you want to let me explain what's happened, I guarantee you they will never ever side with you."
 
-Dan tried to convince Ana to leave Steven alone, saying "I think both of you understand that moving forward there shouldn't be any additional relationship, friends or not. Just, nothing. No conversation, no nothing, you're incompatible, there's no future, there's no hope."
+Dan tried to convince Ana to leave Destiny alone, saying "I think both of you understand that moving forward there shouldn't be any additional relationship, friends or not. Just, nothing. No conversation, no nothing, you're incompatible, there's no future, there's no hope."
 
-But moments later, Steven offered to fly out to argue directly with Ana's therapist.
+But moments later, Destiny offered to fly out to argue directly with Ana's therapist.
 
-Near the end of the conversation, Steven explained why he was attacking her: "I have to protect myself. I can't have a person that is saying incredibly nasty things about me to other people on the platform… I have to come out and give my side of the story, otherwise I look like this horrible abuser behind the scenes. Of course I have to, it's protecting myself."
+Near the end of the conversation, Destiny explained why he was attacking her: "I have to protect myself. I can't have a person that is saying incredibly nasty things about me to other people on the platform… I have to come out and give my side of the story, otherwise I look like this horrible abuser behind the scenes. Of course I have to, it's protecting myself."
 
-After the stream, Ana continued to message Steven about her problems with him. He was mostly unresponsive until Ana presented an opportunity for content–a graduate psychology student had reached out because he was concerned about how Steven had treated Ana, and he was willing to talk to Steven.
+After the stream, Ana continued to message Destiny about her problems with him. He was mostly unresponsive until Ana presented an opportunity for content–a graduate psychology student had reached out because he was concerned about how Destiny had treated Ana, and he was willing to talk to Destiny.
 
-On October 30, 2020, the student, named Drew, moderated an onstream conversation between Steven and Ana.
+On October 30, 2020, the student, named Drew, moderated an onstream conversation between Destiny and Ana.
 
 Drew quickly abandoned his goal of mutual understanding, and instead focused on brokering a peace treaty where the two would agree to stop talking about each other in public and have no private contact whatsoever.
 
@@ -586,37 +582,37 @@ Destiny agreed, but was skeptical about the plan: "To be clear, after we had thi
 
 However, he then repeated his offer to fly out and do a group therapy session with Ana and her therapist.
 
-Drew implored Ana to seek closure on her own rather than by continuing to talk to Steven.
+Drew implored Ana to seek closure on her own rather than by continuing to talk to Destiny.
 
-Frustrated, Steven said, "She's walking away from this thinking that I'm the person with most of the problems." Drew asked if that mattered.
+Frustrated, Destiny said, "She's walking away from this thinking that I'm the person with most of the problems." Drew asked if that mattered.
 
 "None of this technically matters to me. I have nothing to lose here if my community harasses her forever. In that sense, the prerogative shouldn't be on me to resolve this, it should be on her. I mean, I'm willing to because I don't want to be a cruel evil person."
 
-In a rare moment of semi-vulnerability, Steven said that Ana had made an ableist attack against him by calling him a sociopath.
+In a rare moment of semi-vulnerability, Destiny said that Ana had made an ableist attack against him by calling him a sociopath.
 
-The talk ended with both parties agreeing to the unconvincing ceasefire, and Steven announced that all discussion of Ana was now banned in his community.
+The talk ended with both parties agreeing to the unconvincing ceasefire, and Destiny announced that all discussion of Ana was now banned in his community.
 
-In November, Ana sent Steven several pages worth of unanswered DMs. She shared her ruminations about feeling humiliated, guilty, and angry, and pleaded for him to respond.
+In November, Ana sent Destiny several pages worth of unanswered DMs. She shared her ruminations about feeling humiliated, guilty, and angry, and pleaded for him to respond.
 
-On November 22, 2020, while Steven played Minecraft on stream, Dan read the following open letter to Ana, prefacing it with: "This was a joke, meaning I did not intend for this to be sent."
+On November 22, 2020, while Destiny played Minecraft on stream, Dan read the following open letter to Ana, prefacing it with: "This was a joke, meaning I did not intend for this to be sent."
 
-"Listen here. you crazy fucking bitch. Steven doesn't want to be with you. He doesn't want to talk to you, he doesn't want to receive your constant desperate Discord messages. In fact, every time we receive one from you, we laugh and laugh about how sad and pathetic you are. Our favorites are the ones where you write paragraphs and paragraphs and we just imagine you desperately waiting by the computer for a response that will never come. "
+"Listen here. you crazy fucking bitch. Destiny doesn't want to be with you. He doesn't want to talk to you, he doesn't want to receive your constant desperate Discord messages. In fact, every time we receive one from you, we laugh and laugh about how sad and pathetic you are. Our favorites are the ones where you write paragraphs and paragraphs and we just imagine you desperately waiting by the computer for a response that will never come. "
 
-Steven laughed and said, "Dan, what the fuck is wrong with you?"
+Destiny laughed and said, "Dan, what the fuck is wrong with you?"
 
-Dan continued: "I am not sure how delusional you are to believe that there will ever be a world where Steven wants to talk to you again, but I wanted to thank you for the incessant entertainment you provide with your incoherent ramblings and pseudo nonsense psychological takes. Let me be as clear as possible so you get the hint, because it seems to me you are incapable of listening. You mean nothing to either of us. We could give two shits if you never contacted either of us ever again. Our feelings about you are similar to that of a newspaper comic–a funny thing to look at once in a while."
+Dan continued: "I am not sure how delusional you are to believe that there will ever be a world where Destiny wants to talk to you again, but I wanted to thank you for the incessant entertainment you provide with your incoherent ramblings and pseudo nonsense psychological takes. Let me be as clear as possible so you get the hint, because it seems to me you are incapable of listening. You mean nothing to either of us. We could give two shits if you never contacted either of us ever again. Our feelings about you are similar to that of a newspaper comic–a funny thing to look at once in a while."
 
-After a pause, Steven said, "Wow, edgy much?"
+After a pause, Destiny said, "Wow, edgy much?"
 
-Three days later, on November 25, 2020, Steven finally replied to Ana's ongoing DMs, saying: "ANA I DON'T THINK WE'RE GONNA RESOLVE THIS ONE."
+Three days later, on November 25, 2020, Destiny finally replied to Ana's ongoing DMs, saying: "ANA I DON'T THINK WE'RE GONNA RESOLVE THIS ONE."
 
 Three weeks later, they were sexting again.
 
-On January 25, 2021, Ana told Steven that she'd seen an old clip of him talking about choking his ex-wife.
+On January 25, 2021, Ana told Destny that she'd seen an old clip of him talking about choking his ex-wife.
 
-In the clip, Steven had said: "...I had to fuckin' choke her out a few fuckin' times. That shit got crazy, hell yeah it did, and I guarantee you that everybody here would probably think I'm a fucking crazy physical abuser, too…"
+In the clip, Destiny had said: "...I had to fuckin' choke her out a few fuckin' times. That shit got crazy, hell yeah it did, and I guarantee you that everybody here would probably think I'm a fucking crazy physical abuser, too…"
 
-This was in the context of defending MrDeadMoth, a streamer who, in 2018, hit his pregnant wife multiple times on stream after she threw small objects at him. Steven did a reaction stream where he rationalized the violence against her, calling her an abuser and dismissing her chilling screams as "crocodile tears." In the stream chat, you can watch the mostly-male audience turn against her with ironic jokes ("ONE PUNCH MAN," "kill all women") and sincere identification of MrDeadMoth as the victim ("It sounds like she did this to actually ruin his stream career the way she said 'you're a woman beater' out loud").
+This was in the context of defending MrDeadMoth, a streamer who, in 2018, hit his pregnant wife multiple times on stream after she threw small objects at him. Destiny did a reaction stream where he rationalized the violence against her, calling her an abuser and dismissing her chilling screams as "crocodile tears." In the stream chat, you can watch the mostly-male audience turn against her with ironic jokes ("ONE PUNCH MAN," "kill all women") and sincere identification of MrDeadMoth as the victim ("It sounds like she did this to actually ruin his stream career the way she said 'you're a woman beater' out loud").
 
 Ana: Choking out is like the number one red flag for domestic abuse victims to get out. And you dare call yourself a victim???? You could've killed her. You were never a victim. And you should've gone to jail for that.
 
@@ -644,7 +640,7 @@ He blocked her.
 
 Then he posted screenshots of the DMs in his public chat, calling her insane. Melina replied: "Can we all just try to get her fired? She'll kill people with her words. I hate her with all my heart."
 
-A fan reposted the DMs in Steven's subreddit with the title: "This is disgusting."
+A fan reposted the DMs in Destiny's subreddit with the title: "This is disgusting."
 
 The post received 1,400 upvotes, and the top comment, with 859 upvotes, reads:
 
@@ -654,55 +650,55 @@ Link | Archive
 
 (On February 12, 2023, Destiny wrote the following comment in my subreddit on a thread about the alleged choking: Just as an FYI I have never choked anyone to or near the point of unconsciousness in my life. I have never even really "choked" someone, it was more just holding onto them from behind to get them to stop hitting me [...].)
 
-Blocked on Discord, Ana messaged Steven consistently on Instagram for a month, with sporadic replies from Steven such as: "._.   I think we just trigger each other too much Ana lol" and "ANA. NO CONTACT. PLEASE."
+Blocked on Discord, Ana messaged Destiny consistently on Instagram for a month, with sporadic replies from Destiny such as: "._.   I think we just trigger each other too much Ana lol" and "ANA. NO CONTACT. PLEASE."
 
-The DMs kept coming. On March 16, Steven apologized to her for attacking her publicly, but six days later he said on stream that the apology had been insincere.
+The DMs kept coming. On March 16, Destiny apologized to her for attacking her publicly, but six days later he said on stream that the apology had been insincere.
 
 Eventually he blocked Ana on Instagram. She started DMing him on Twitter, at one point asking, "Seriously do you wish I were dead? Would you fucking meme my suicide for content?"
 
-By summer Steven was sexting her again.
+By summer Destiny was sexting her again.
 
-In June, Ana asked Steven to help repair her reputation.
+In June, Ana asked Destiny to help repair her reputation.
 
-Steven: If I said anything now people would just be really dramatic and dumb about stuff.
+Destiny: If I said anything now people would just be really dramatic and dumb about stuff.
 
 Ana: Aren't you more concerned with Melina finding out? Not so much what your fanbase thinks. But also it's not like I'm some crazy person lmao you could just say you exaggerated :/
 
-Steven: I'll cross that bridge when I come to it okay lol. And maybe in the future yayaya. Tease me and make me tweet it out sometime :)
+Destiny: I'll cross that bridge when I come to it okay lol. And maybe in the future yayaya. Tease me and make me tweet it out sometime :)
 
 Ana: Oh trueeeeeee now you're giving me ideas :) lots of ideas
 
 […]
 
-Steven: I'll fix it sometime publicly okay. Until then you can work on your essays on your bed while I rub your legs and feet okay <3
+Destiny: I'll fix it sometime publicly okay. Until then you can work on your essays on your bed while I rub your legs and feet okay <3
 
-On July 1, 2021, Steven and Ana appeared on a panel about mental health and policing together.
+On July 1, 2021, Destiny and Ana appeared on a panel about mental health and policing together.
 
 On July 17, Ana reiterated her request that they not keep their friendliness a secret.
 
-Steven: I'm more comfortable keeping things under wraps, but if you're not comfortable [with] that then it's your choice whether you want to continue chatting with me.
+Destiny: I'm more comfortable keeping things under wraps, but if you're not comfortable [with] that then it's your choice whether you want to continue chatting with me.
 
 Ana: But do you understand why this is shitty for me?
 
-Steven: Sure I can understand why you'd feel that way, but it doesn't change my position.
+Destiny: Sure I can understand why you'd feel that way, but it doesn't change my position.
 
-On August 29, 2021, Steven complained on stream that Ana was privately telling people that he's a dark triad abuser. 
+On August 29, 2021, Destiny complained on stream that Ana was privately telling people that he's a dark triad abuser. 
 
-When Dan expressed dismay that Steven was still in contact with Ana, Steven said that the only way to prevent Ana from going on "constant hate tirades" about him is to "try to be somewhat friendly" with her.
+When Dan expressed dismay that Destiny was still in contact with Ana, Destiny said that the only way to prevent Ana from going on "constant hate tirades" about him is to "try to be somewhat friendly" with her.
 
 Dan said, "Oh, so you're just giving into blackmail, to be clear… someone's giving you shit, and you're like okay, fuck it, I can't fight it anymore, you win, we're best friends, we're meant to be together forever."
 
-The same day, Steven DMed Ana: Do you understand that it's really bad that you're making new friends that are already my friend and then venting to them about me?
+The same day, Destiny DMed Ana: Do you understand that it's really bad that you're making new friends that are already my friend and then venting to them about me?
 
-The following day, on August 30, 2021, Steven read aloud the following statement in a sarcastic monotone:
+The following day, on August 30, 2021, Destiny read aloud the following statement in a sarcastic monotone:
 
 "I'm making a public announcement. Anybody that doesn't understand this is getting permanently banned, and we're putting all of this behind us, okay? Listen, me and Ana are perfectly fine. She is not a crazy person, she is not a stalker. We have had fights publicly where there has been name-calling on both sides, but you know what? Everything is cool and we're past all of that…"
 
 The chat reacted with comments like "blink twice if she has a gun to your head" and "SHE HAS SOMETHING ON HIM."
 
-On September 22, 2021, during a 12-person panel show hosted by Jon Zherka, Ana tearfully accused Steven of emotionally abusing her. The other panelists mostly urged her to calm down and let it go.
+On September 22, 2021, during a 12-person panel show hosted by Jon Zherka, Ana tearfully accused Destiny of emotionally abusing her. The other panelists mostly urged her to calm down and let it go.
 
-Eventually Steven called in to defend himself. Sounding tired but panicked (he was calling from bed), Steven accused Ana of consistently breaking their agreements to stop talking about each other.
+Eventually Destiny called in to defend himself. Sounding tired but panicked (he was calling from bed), Destiny accused Ana of consistently breaking their agreements to stop talking about each other.
 
 He then set about discrediting her, explaining how he'd blocked her on Discord and she'd followed him to other platforms.
 
@@ -712,13 +708,13 @@ Shouting, she said: "'Goodnight princess, good morning princess,' really? I'm mi
 
 Zherka jokingly asked, "Destiny, do you feel protected?" But then he added: "…no, Ana, Ana, you're not leaking DMs."
 
-Steven offered another sarcastic, exasperated apology. "I'm a horrible person! …I accept full responsibility. I have lied to my fiance, I've lied to my son, I've lied to my community, I'm a horrible manipulative person… every part of this is my fault, and now I'm moving on and I never want to talk about this publicly again."
+Destiny offered another sarcastic, exasperated apology. "I'm a horrible person! …I accept full responsibility. I have lied to my fiancee, I've lied to my son, I've lied to my community, I'm a horrible manipulative person… every part of this is my fault, and now I'm moving on and I never want to talk about this publicly again."
 
 Zherka backed him up again: "Yeah, that's great–it's closure time, Ana."
 
-Steven pledged to stop all public and private communication with Ana and left the call. Ana continued to criticize him.
+Destiny pledged to stop all public and private communication with Ana and left the call. Ana continued to criticize him.
 
-70 minutes later, Steven returned, begging Zherka to cut Ana off. Zherka refused, and Steven and Ana argued about their relationship for another hour.
+70 minutes later, Destiny returned, begging Zherka to cut Ana off. Zherka refused, and Destiny and Ana argued about their relationship for another hour.
 
 Near the end, Ana asked, "If you don't want to be friends with me, why didn't you tell me in privately? Why didn't you just say that?"
 
@@ -726,9 +722,9 @@ Near the end, Ana asked, "If you don't want to be friends with me, why didn't yo
 
 Ana responded, "That's the silent treatment, though. If you didn't want to be friends with me, why didn't you say that?"
 
-"Oh my god, okay." Steven said, and quickly left.
+"Oh my god, okay." Destiny said, and quickly left.
 
-The following day, Steven did a follow-up stream to explain his thoughts about Ana.
+The following day, Destiny did a follow-up stream to explain his thoughts about Ana.
 
 "I feel a little bit better though, because now that it blew up on Zherka's show, I have so many people messaging me that seem to understand how unhinged she is. I'm not worried anymore now… So, everybody that thought I was being held hostage–you were right. My thought process before was that maybe if we can just be friends and chill, everything will be okay, and she'll stop talking about me publicly… The scary thing is that she started to get into these communities where I had a whole bunch of mutual friends, so for instance a whole bunch of people started DMing me, that were like hey, do you know this Ana person? … I got really scared because then it seems like another Bob7 situation, where it's like, is she about to go and tell every single person that I'm this abusive horrible person? … But now that everything just came out on Zherka's show, I think I'm okay with everything now. Now I can just ignore her, she can spam her shit all day, I don't care, because I think enough people have seen her now in that arena blow up, where they're like "okay, she's got problems. "
 
@@ -740,9 +736,9 @@ A chatter suggested he have her blacklisted from panel shows.
 
 "The reason why this situation is probably more difficult than anything that I've handled in the past is because most people have a sense of shame, or reputation, or job, or relationships, or anything. There's some fucking Art of War, Sun Tzu fucking quote about this, but the problem is that Ana has nothing to lose. She can go as hard as she wants, as long as she wants, as much as she wants, and she has–there's no repercussions."
 
-The next day, Stardust, a Steven ally who had brushed off Ana's abuse claims on the Zherka panel, did a stream with Drew, our refreshingly sane psychology student who'd advocated for Ana a year prior.
+The next day, Stardust, a Destiny ally who had brushed off Ana's abuse claims on the Zherka panel, did a stream with Drew, our refreshingly sane psychology student who'd advocated for Ana a year prior.
 
-Drew told Stardust he was concerned that the increased attention on Ana would bring more harassment her way–after the Zherka-hosted screaming match, it was inevitable that the drama vultures would come for their pieces of the Ana pie (and they'd be encouraged to help themselves so long as they were promulgating Steven's narrative).
+Drew told Stardust he was concerned that the increased attention on Ana would bring more harassment her way–after the Zherka-hosted screaming match, it was inevitable that the drama vultures would come for their pieces of the Ana pie (and they'd be encouraged to help themselves so long as they were promulgating Destiny's narrative).
 
 Within 22 minutes, Dan joined the call. "I thought I'd come in here to defend the honor of my friend a little bit… I kind of see a victim and an aggressor, I guess you see it in the other way, but I don't really particularly give a shit what the aggressor goes through when they do stuff. I care about the victim, personally."
 
@@ -754,7 +750,7 @@ He added, "I didn't say anything for a long time because Steve asked me to, but 
 
 By this time, the shitting-on-Ana economy was officially booming. If you search for Ana and Destiny, YouTube will happily take you on an algorithm-guided tour of mocking streams, reaction videos, montages, and video essays. There are entire channels devoted to attacking her.
 
-On September 27, 2021, Steven gave an Ana update on stream, calling her "the most abusive manipulative motherfucker in the world." 
+On September 27, 2021, Destiny gave an Ana update on stream, calling her "the most abusive manipulative motherfucker in the world." 
 
 "Ana started tweeting again, because she's always tweeting. She's getting shit on on Twitter a lot, which I guess is good? I hate to say that, but I don't know how to make her stop."
 
@@ -764,59 +760,59 @@ Strategizing, he ruled out asking Twitch for help, and shot down the idea of get
 
 He declared that Zherka would not be allowed to react to his streams anymore, or he'd file copyright claims against him, threatening his channel.
 
-Steven read aloud a DM he received from a longtime Twitter foe known as Squirrel: You need to stop talking to or about Ana going forward, and remove any mentions of her from your community. The constant back and forth between you two is incredibly unhealthy for her, and there is no possibility of resolution going down that route. I'm sorry, but the lifestyle you have chosen is one where this stuff is liable to happen, and there is no way you can stop it by offering money or blocking or whatever, you just have to deal with it and accept that whatever she does, which btw in the grand scheme of things is incredibly marginal (what, she just talks about you on some shows? Who cares), is the cost that you have to pay for that.
+Destiny read aloud a DM he received from a longtime Twitter foe known as Squirrel: You need to stop talking to or about Ana going forward, and remove any mentions of her from your community. The constant back and forth between you two is incredibly unhealthy for her, and there is no possibility of resolution going down that route. I'm sorry, but the lifestyle you have chosen is one where this stuff is liable to happen, and there is no way you can stop it by offering money or blocking or whatever, you just have to deal with it and accept that whatever she does, which btw in the grand scheme of things is incredibly marginal (what, she just talks about you on some shows? Who cares), is the cost that you have to pay for that.
 
 And his reply: You have zero idea what you're talking about, fuck out of my personal life, you are deranged lmao.
 
-(The exchange was posted on Steven's subreddit with the title "Squirrel girl returns; thinks she’s entitled to comment on Destiny’s personal life." It has 997 upvotes.)
+(The exchange was posted on Destiny's subreddit with the title "Squirrel girl returns; thinks she’s entitled to comment on Destiny’s personal life." It has 997 upvotes.)
 
 Link | Archive
 
-Steven continued: "Can you imagine if I was a woman being stalked by a guy and somebody DMed me that? Do you understand the level of fucking insanity that this is? … And now this Squirrel cunt has just tweeted this whole fucking manifesto about how I bring on young girls and groom them and shit on my stream."
+Destiny continued: "Can you imagine if I was a woman being stalked by a guy and somebody DMed me that? Do you understand the level of fucking insanity that this is? … And now this Squirrel cunt has just tweeted this whole fucking manifesto about how I bring on young girls and groom them and shit on my stream."
 
 He also attacked a streamer named Maddycakes, after saying they had squashed their beef in a private call he'd "illegally recorded."
 
 "Five days later she's in somebody else's fucking chat saying 'oh Destiny defends misogynists.' Okay? Fuck MaddieCakes, fuck her, fuck everything about her online. Okay, fuck this piece of shit, Jesus Christ. What a fucking loser, holy shit."
 
-On September 28, 2021, a Steven defender named Ahrelevant debated Zherka about who'd exploited Ana more between Steven and Zherka.
+On September 28, 2021, a Destiny defender named Ahrelevant debated Zherka about who'd exploited Ana more between Destiny and Zherka.
 
-Steven jumped on the call to attack Zherka for allowing Ana to shit talk him in front of 3000 viewers.
+Destiny jumped on the call to attack Zherka for allowing Ana to shit talk him in front of 3000 viewers.
 
-Another streamer, Haz, justified platforming her critiques of Steven: "Ana saw fit to vent her frustrations and problems, and one of the reasons she was doing that is 'cause she's never actually had the opportunity to have a fucking large audience to talk to that wasn't in the DGG cult."
+Another streamer, Haz, justified platforming her critiques of Destiny: "Ana saw fit to vent her frustrations and problems, and one of the reasons she was doing that is 'cause she's never actually had the opportunity to have a fucking large audience to talk to that wasn't in the DGG cult."
 
-Steven (after demanding that Haz be kicked from the call), countered that Zherka was farming a mentally ill girl for content, and was "probably scared of getting fucking banned because this girl might fucking kill herself after crying on your stream for four hours."
+Destiny (after demanding that Haz be kicked from the call), countered that Zherka was farming a mentally ill girl for content, and was "probably scared of getting fucking banned because this girl might fucking kill herself after crying on your stream for four hours."
 
-On October 2, 2021, a Steven ally named Eristocracy did a stream with Ana, who had been a friend of hers.
+On October 2, 2021, a Destiny ally named Eristocracy did a stream with Ana, who had been a friend of hers.
 
 She cross-examined Ana for two hours with a barrage of questions like, "Do you think you have done some things to Destiny that could be seen as emotionally abusive?"
 
-She told Ana that her "emotional vomiting" in Steven's DMs was harassment, and explained that Steven was the real victims and Ana was the abuser. 
+She told Ana that her "emotional vomiting" in Destiny's DMs was harassment, and explained that Destiny was the real victims and Ana was the abuser. 
 
 "When you would reconnect, he would keep that a secret, right? He wouldn't tell people, he would still be acting on stream like you guys hadn't reconnected, and that really hurt you, okay? Totally get that… the thing is, it's also a totally normal behavior for an abuse victim to reconnect and engage with their abuser when they're in vulnerable moments, so who knows what he was going through, and maybe he went back to that person, and that person was you. That doesn't require some super evil malicious intent on your part, but that's a known unhealthy dynamic, where someone keeps going back, and they know that the people who care about them–I'm just guessing, I might be totally wrong with Destiny–but maybe he knew that his viewers who cared about him and his fiancee that cares about him or anyone that they would immediately be like dude, do not go back… That's an abusive situation and there gonna shit on him for it so he keeps that secret… it's a very normal behavior for a victim."
 
-After Ana left Eristocracy's stream, Dan called in, saying, "If Steven's guilty of anything, it's somehow getting back into a relationship with Ana when he should have fucking known that this was a bad idea, but I can't fault him too too much because he was probably thinking like, okay this is the best way to make this end, if she's somewhat happy."
+After Ana left Eristocracy's stream, Dan called in, saying, "If Destiny's guilty of anything, it's somehow getting back into a relationship with Ana when he should have fucking known that this was a bad idea, but I can't fault him too too much because he was probably thinking like, okay this is the best way to make this end, if she's somewhat happy."
 
 Eristocracy replied, "I don't think she left him with any choice."
 
-Alisha, another streamer friend of Steven's, said in a reaction stream, "It's not a relationship… you were just a hit it and quit it, and you're too fucking crazy to handle that. You're too fucking cuckoo for cocoa puffs to understand that you were just a vagina for a day. Get over it. Move on."
+Alisha, another streamer friend of Destiny's, said in a reaction stream, "It's not a relationship… you were just a hit it and quit it, and you're too fucking crazy to handle that. You're too fucking cuckoo for cocoa puffs to understand that you were just a vagina for a day. Get over it. Move on."
 
-On October 2, 2021, Stardust debated Zherka about his claim that Steven "pumps and dumps" women. Stardust said it was unfair to imply that Steven doesn't care about his sex partners. 
+On October 2, 2021, Stardust debated Zherka about his claim that Destiny "pumps and dumps" women. Stardust said it was unfair to imply that Destiny doesn't care about his sex partners. 
 
 On October 8, 2021, Aba and Preach, a man-focused commentary channel with 1.9 million subscribers, posted a video titled "WHY WOULD YOU CALL ME PRINCESS?" | How crazy women hold men hostage." 
 
-The video is monetized and has a million views. (Aba unlisted it at Steven’s request a year later, around the time I announced I was writing this article.)
+The video is monetized and has a million views. (Aba unlisted it at Destiny’s request a year later, around the time I announced I was writing this article.)
 
-On October 26, 2021, Steven blacklisted Ana from panel shows, stating: "If any of the political panel shows or people are affiliating with Ana in any way, I'm not going on the show for six months."
+On October 26, 2021, Destiny blacklisted Ana from panel shows, stating: "If any of the political panel shows or people are affiliating with Ana in any way, I'm not going on the show for six months."
 
 He read aloud a chat message that said: "I think you might be able to report her to her school for ethics violations. She's psychoanalyzing people publicly."
 
-On October 1, 2021, Steven posted in his offline chat: Tell Ana if she leaks my sexting I might have some pics to share.
+On October 1, 2021, Destiny posted in his offline chat: Tell Ana if she leaks my sexting I might have some pics to share.
 
 Ana took this as a threat to leak her nudes and would later refer to it as sexual abuse.
 
-On December 12, 2021, Ana accused Steven of pressuring her to not use a condom when they had sex in 2020. He denied this, and she later admitted it was not true, and that she’d said it out of anger.
+On December 12, 2021, Ana accused Destiny of pressuring her to not use a condom when they had sex in 2020. He denied this, and she later admitted it was not true, and that she’d said it out of anger.
 
-On December 26, 2021, Steven read the winners of his community's yearly awards. 
+On December 26, 2021, Destiny read the winners of his community's yearly awards. 
 
 Panel Shitshow of the year: Zherka Royale with Ana
 
@@ -832,101 +828,101 @@ Reeee of the year: Ana ("Why would you call me princess?")
 
 ["Reeee" symbolizes baseless whining or screeching.]
 
-On January 5, 2022, Steven played video games on stream while listening to Ana rant about him on her own stream, making occasional comments like "she's lying," and "nice."
+On January 5, 2022, Destiny played video games on stream while listening to Ana rant about him on her own stream, making occasional comments like "she's lying," and "nice."
 
-On January 23, 2022, Dan asked Steven how things were going with Ana.
+On January 23, 2022, Dan asked Destiny how things were going with Ana.
 
-Steven: It's the same as always. She's looping infinitely, there's nothing else to really say.
+Destiny: It's the same as always. She's looping infinitely, there's nothing else to really say.
 
 Dan: You think there's no way out of it for ya, yeah?
 
-Steven: Not until she kills herself or she kills me.
+Destiny: Not until she kills herself or she kills me.
 
 Dan: Alrighty, okay. Welp, a little dark all of a sudden. 
 
-Steven: What else can happen?
+Destiny: What else can happen?
 
 Destiny reads aloud an email from a therapist who explains how they'd use DBT therapy to treat Ana's need to be a victim. (He seemingly later attempted to give her this therapy himself, on stream.)
 
-The same day, Steven invited Ana to talk to him. The stream was titled: "Confronting Ana about her lies and neverending loops." 
+The same day, Destiny invited Ana to talk to him. The stream was titled: "Confronting Ana about her lies and neverending loops." 
 
-Steven: You're actually insane. How can you not realize this?
+Destiny: You're actually insane. How can you not realize this?
 
 Ana: You're driving me crazy, Steven, how can you not realize this?
 
-Ana said she was upset he still calls her a stalker. Steven told her to drop it.
+Ana said she was upset he still calls her a stalker. Destiny told her to drop it.
 
-Steven: If every time you bring it up on stream, then I respond to it, and then it happens over and over again, why not just leave it?
+Destiny: If every time you bring it up on stream, then I respond to it, and then it happens over and over again, why not just leave it?
 
-Steven said she was having a psychotic break, and that she wasn't really trying to let it go. 
+Destiny said she was having a psychotic break, and that she wasn't really trying to let it go. 
 
 Ana: I'm just hoping that people will slowly not think that I'm a stalker, I don't know…
 
-Steven said, "It's not going to end on your terms," and accused her of faking her breakdowns.
+Destiny said, "It's not going to end on your terms," and accused her of faking her breakdowns.
 
-Steven: You're like, giddy right now to have this conversation, but simultaneously you say I've made you suicidal. How does that work?
+Destiny: You're like, giddy right now to have this conversation, but simultaneously you say I've made you suicidal. How does that work?
 
 Ana: I think you know that it's my defense mechanism. 
 
-Steven: Yeah, it's called borderline personality disorder, I think that's what's going on. 
+Destiny: Yeah, it's called borderline personality disorder, I think that's what's going on. 
 
 They argued about whether she meets the criteria for borderline personality disorder. 
 
 Ana said she has OCD and can't stop herself from re-engaging.
 
-Steven: I've never in my life interacted with somebody that has the fortitude that you do to carry forward in a negative way that is so self-destructive… You're steadfast in your engagement with your own self-destruction.
+Destiny: I've never in my life interacted with somebody that has the fortitude that you do to carry forward in a negative way that is so self-destructive… You're steadfast in your engagement with your own self-destruction.
 
 Ana: Because I can't let people think lies about me. I can't let it go.
 
-Steven asked Ana what she works on in therapy. She said she works on her OCD. He then asked if she uses DBT, as it's effective for people with borderline. They both laughed.
+Destiny asked Ana what she works on in therapy. She said she works on her OCD. He then asked if she uses DBT, as it's effective for people with borderline. They both laughed.
 
-Steven then read the criteria for borderline personality disorder and tried to convince her that she has it.
+Destiny then read the criteria for borderline personality disorder and tried to convince her that she has it.
 
-Steven: You said that you were feeling suicidal, I think that matches under self-harm.
+Destiny: You said that you were feeling suicidal, I think that matches under self-harm.
 
 Ana: Some days I do feel suicidal because of all the harassment and stuff, and I feel like wow, this is just kind of hopeless, holy shit, it's never gonna get better.
 
-Steven: You've been talking about me for over a year and a half.
+Destiny: You've been talking about me for over a year and a half.
 
 Ana: Oh well, haven't you been doing that same thing?
 
-They made yet another agreement to not talk about each other. Steven said she won't make it 12 hours.
+They made yet another agreement to not talk about each other. Destiny said she won't make it 12 hours.
 
-Steven: I think you've convinced yourself that, because of the type of abuse I've subjected you to, I think that you could try to kill me in real life and I think you would feel justified in doing it. Do you think you have a good enough reason, on everything that I've done to you, do you think you have a good enough reason to try to kill me?
+Destiny: I think you've convinced yourself that, because of the type of abuse I've subjected you to, I think that you could try to kill me in real life and I think you would feel justified in doing it. Do you think you have a good enough reason, on everything that I've done to you, do you think you have a good enough reason to try to kill me?
 
 Ana: Fuck no, dude, that's fucking insane.
 
-Steven: …don't you think if you did kill me, you would still be the victim in the situation? Because I've been mentally abusing you for so long? And you had no other option?
+Destiny: …don't you think if you did kill me, you would still be the victim in the situation? Because I've been mentally abusing you for so long? And you had no other option?
 
 Ana: No. That's insane, dude, what the fuck?
 
-Ana claimed that Steven wants to hurt her.
+Ana claimed that Destiny wants to hurt her.
 
-Steven: If I wanted to cause you the maximum amount of pain and suffering, don't you think there's a million other things that somebody like me could do? I'm a pretty resourceful person.
+Destiny: If I wanted to cause you the maximum amount of pain and suffering, don't you think there's a million other things that somebody like me could do? I'm a pretty resourceful person.
 
 Ana: The only reason you wouldn't do it is because of how it would impact you, not because it's morally wrong.
 
-Steven: Why do you think it would impact me?
+Destiny: Why do you think it would impact me?
 
 Ana: I don't know, get you banned or something.
 
-Steven: I can get around things. I'm sponsored by Surfshark dot deals slash Destiny, there's a VPN that I could get where I have three months for free, eighty percent discount, I could login to an IP from anywhere in the world…
+Destiny: I can get around things. I'm sponsored by Surfshark dot deals slash Destiny, there's a VPN that I could get where I have three months for free, eighty percent discount, I could login to an IP from anywhere in the world…
 
-Steven opened up a website about psychosis and argued that she is psychotic and delusional. Ana explained that her thinking is not distorted to the point where it could be called a break from reality.
+Destiny opened up a website about psychosis and argued that she is psychotic and delusional. Ana explained that her thinking is not distorted to the point where it could be called a break from reality.
 
 He asked if she's medicated. She said she isn't. He spent several minutes trying to persuade her to go on antipsychotics or antidepressants.
 
-Ana accused Steven of trying to make people think she's crazy, and he acknowledged that it was true: "Yeah, I don't want anybody listening to you, and I want people to think you're crazy, because you lie about me, constantly.”
+Ana accused Destiny of trying to make people think she's crazy, and he acknowledged that it was true: "Yeah, I don't want anybody listening to you, and I want people to think you're crazy, because you lie about me, constantly.”
 
-(He was referring to her lie about him pressuring her to use a condom, as well as her evasiveness when confronted about why she'd recently promoted another streamer who hates Steven.)
+(He was referring to her lie about him pressuring her to use a condom, as well as her evasiveness when confronted about why she'd recently promoted another streamer who hates Destiny.)
 
-At the end of the conversation, Steven said, "I'll look forward to responding to your clips tomorrow when I see you freaking out again," and reminded her of his ongoing offer to do a group session with her and her therapist.
+At the end of the conversation, Destiny said, "I'll look forward to responding to your clips tomorrow when I see you freaking out again," and reminded her of his ongoing offer to do a group session with her and her therapist.
 
-Afterward, a viewer commented in Steven's subreddit: ok im getting worried that this is a sex thing and that they're getting turned on by arguing in front of an audience and i'm not sure if i feel comfortable participating anymore. (59 upvotes.)
+Afterward, a viewer commented in Destiny's subreddit: ok im getting worried that this is a sex thing and that they're getting turned on by arguing in front of an audience and i'm not sure if i feel comfortable participating anymore. (59 upvotes.)
 
 January 24, 2022: Nicholas DeOrio uploaded a video titled "Destiny's Schizo Stalker Debates 40 Discord Debate Bros"
 
-The video is a recording of a Discord group call where several Destiny fans yell at and about Ana, often mimicking Steven's arguments and even his speech patterns.
+The video is a recording of a Discord group call where several Destiny fans yell at and about Ana, often mimicking Destiny's arguments and even his speech patterns.
 
 Man 1: Her big claim right now is that people are accusing her of lying and she didn't, but the fact that she's here when she said she wasn't going to talk about this for two days is literally her demonstrating that she's a liar…
 
@@ -946,7 +942,7 @@ Ana: Usually you have to have some sort of evidence of intent, I would think.
 
 Dario: How do we figure out evidence of intent? Have you ever watched a legal show or a trial or something where somebody's on trial where we are trying to establish intent, do you know?
 
-As he pressed her about how she's a liar, Steven's young fans blurted out random memes.
+As he pressed her about how she's a liar, Destiny's young fans blurted out random memes.
 
 January 24, 2022: Eristocracy uploaded a video titled "Anafrills Is Starting To SCARE ME!"
 
@@ -954,7 +950,7 @@ Eristocracy drew a diagram of Ana's friendships, alleging a sociopathic pattern 
 
 She watched a clip of Ana saying she won't forget the people who betrayed her, and says that if Ana murders her, this clip will be used in the trial.
 
-January 25, 2022: A Steven-allied drama streamer named ChudLogic uploaded "Dan JOINS CALL Against Ana! WARNS CHUD Against Platforming Her... ft. WickedSupreme & Dylan Burns"
+January 25, 2022: A Destiny-allied drama streamer named ChudLogic uploaded "Dan JOINS CALL Against Ana! WARNS CHUD Against Platforming Her... ft. WickedSupreme & Dylan Burns"
 
 Dan warned the other orbiters: "If you guys don't call her out when she's saying shit on here you guys are gonna earn the fucking serious ire of Destiny, like times 1,000."
 
@@ -962,19 +958,19 @@ He also said: "I think she's actually the type of person who might try to kill y
 
 January 26, 2022: DylanBurnsTV uploaded "'Dylan You're Being Abusive!' Confronting AnaVoir About the Destiny Drama (ft. Destiny)"
 
-Dylan confronted Ana about her condom claim, going as far as saying she may have been the one pressuring Steven (to use a condom), if anything.
+Dylan confronted Ana about her condom claim, going as far as saying she may have been the one pressuring Destiny (to use a condom), if anything.
 
-Dylan cross-examined her for 20 minutes before Steven joined the call and took over the questioning.
+Dylan cross-examined her for 20 minutes before Destiny joined the call and took over the questioning.
 
 He asked Ana why they didn't use any condoms when they had sex.
 
 She shot back, "Why do you like being cucked?"
 
-Steven laughed and feigned ignorance: "How do I like being cucked? What?"
+Destiny laughed and feigned ignorance: "How do I like being cucked? What?"
 
-"Do you want to go further?" Ana asked, threatening to out the details of their sexting. (As I mentioned before, Steven may enjoy being threatened in this manner.)
+"Do you want to go further?" Ana asked, threatening to out the details of their sexting. (As I mentioned before, Destiny may enjoy being threatened in this manner.)
 
-Steven urged Ana to stop talking about him in public, saying "At this point, if you continue to engage with it, I'm just making money off of you. I got 150,000 views on my last YouTube video. I am profiting from your suffering–from your agony."
+Destiny urged Ana to stop talking about him in public, saying "At this point, if you continue to engage with it, I'm just making money off of you. I got 150,000 views on my last YouTube video. I am profiting from your suffering–from your agony."
 
 Dylan said, "Legitimately, this would be a good reason for Destiny to just say 'fuck it, I'm gonna talk about it forever, and just make money off of it, just make videos out of it. If I gotta deal with all these accusations, I might as well profit off of it.'"
 
@@ -982,39 +978,39 @@ Ana explained that her streams are compulsive and she is unable to stop doing th
 
 Dylan said she has a grim future ahead of her if she doesn't.
 
-Steven said if she can go six months without talking about him, he will take down all of his videos about her and retract his statements about her being a stalker.
+Destiny said if she can go six months without talking about him, he will take down all of his videos about her and retract his statements about her being a stalker.
 
-February 6, 2022: Steven attempted what his fans called a "therapy session" with Ana. 
+February 6, 2022: Destiny attempted what his fans called a "therapy session" with Ana. 
 
-While playing video games, Steven interviewed Ana methodically about her ruminations and coping strategies.
+While playing video games, Destiny interviewed Ana methodically about her ruminations and coping strategies.
 
 "I think usually the recommendation would be to remove yourself from those [triggering] environments, but I don't think you want to just completely give up and stop streaming because people are saying untrue things about you. That doesn't feel very satisfying, which is understandable. Have you thought about ways to reduce the interaction that you have with people that might say untrue things about you?"
 
-Ana accepted his attempt to help, in spite of the fact that her main complaint is that Steven has called her an insane stalker multiple times, and has even offered to retract the claim in exchange for her silence. 
+Ana accepted his attempt to help, in spite of the fact that her main complaint is that Destiny has called her an insane stalker multiple times, and has even offered to retract the claim in exchange for her silence. 
 
 I don't want to do too much interpretation here, but given the consistent back and forth between them, the on-and-off sexual nature of their relationship, and the lack of any real stalking behaviors, I don't think there is any justification for calling her a stalker. 
 
-Steven explained to the audience that the experience of rumination is so foreign to normal people that they may be unable to comprehend the strength of the obsessive thoughts. 
+Destiny explained to the audience that the experience of rumination is so foreign to normal people that they may be unable to comprehend the strength of the obsessive thoughts. 
 
-Eating a sandwich, Steven suggested that Ana try redirecting her attention when she's in a thought spiral rather than fighting it. 
+Eating a sandwich, Destiny suggested that Ana try redirecting her attention when she's in a thought spiral rather than fighting it. 
 
 He told her to form a support system that understands her OCD, to make a plan to redirect herself when she ruminates, and to talk to her therapist about how to break her rituals. 
 
 Before leaving, Ana said "Thank you for your input and your understanding, I appreciate that."
 
-Speaking to chat, Steven said "I did a lot of reading on OCD over the past few days, and I think I actually take back every single thing I said. I don't know if she's borderline or histrionic at all. I think that a lot of her behavior can actually be explained through OCD, and I think that if I treat it as such, and if she's aware of it, and if we're all aware of it, it might be easier for her to move on through everything. I think it's probably better than just assuming she's like an insane borderline person and blah blah blah."
+Speaking to chat, Destiny said "I did a lot of reading on OCD over the past few days, and I think I actually take back every single thing I said. I don't know if she's borderline or histrionic at all. I think that a lot of her behavior can actually be explained through OCD, and I think that if I treat it as such, and if she's aware of it, and if we're all aware of it, it might be easier for her to move on through everything. I think it's probably better than just assuming she's like an insane borderline person and blah blah blah."
 
 Within two weeks they were sexting again, and continued to sext intermittently until at least November 2022.
 
-February 24, 2022: I met Ana on an impromptu panel. She was wary of me and I of her. I didn't know anything that had happened, but had been told by my new fans that she was a stalker and that Steven would be very upset if I platformed her. 
+February 24, 2022: I met Ana on an impromptu panel. She was wary of me and I of her. I didn't know anything that had happened, but had been told by my new fans that she was a stalker and that Destiny would be very upset if I platformed her. 
 
 I uncharacteristically took this at face value, probably because I was enjoying my newfound fame and money.
 
-April 21, 2022: Steven invited me to mediate a streamed conversation between him and Ana.
+April 21, 2022: Destiny invited me to mediate a streamed conversation between him and Ana.
 
-By this point I'd asked him about Ana and had accepted his explanation–they had a fling, she got obsessed with him, and then things simmered down. Having no real knowledge of their relationship, I was about to become complicit in her abuse by allowing Steven to frame the conflict on his terms.
+By this point I'd asked him about Ana and had accepted his explanation–they had a fling, she got obsessed with him, and then things simmered down. Having no real knowledge of their relationship, I was about to become complicit in her abuse by allowing Destiny to frame the conflict on his terms.
 
-I joined the stream and asked Ana what she wanted to communicate to Steven (who was playing video games).
+I joined the stream and asked Ana what she wanted to communicate to Destiny (who was playing video games).
 
 Ana: I feel like he minimizes just how upsetting and stressful and painful this whole experience was for me… "get over it" is sort of like the message. 
 
@@ -1024,79 +1020,79 @@ Ana: Just depressed and hopeless, and why do I even bother studying psychology, 
 
 She said the damage to her reputation made her want to drop out of school and disappear from the internet. 
 
-I pointed out that Steven has steeled himself against online harassment, so he's unlikely to acknowledge how this is affecting her. (He once told me that if he let the hate get to him he would have killed himself a long time ago.)
+I pointed out that Destiny has steeled himself against online harassment, so he's unlikely to acknowledge how this is affecting her. (He once told me that if he let the hate get to him he would have killed himself a long time ago.)
 
-Steven argued that while their original blowout was traumatic for Ana, from that point on the trauma had been self-inflicted. "The only person that can stop it at this point is her, so I don't know what I can do." 
+Destiny argued that while their original blowout was traumatic for Ana, from that point on the trauma had been self-inflicted. "The only person that can stop it at this point is her, so I don't know what I can do." 
 
-In my infinite charity for Steven, I said: "You have so much more power than her in this situation that even if you're trying to make a conscious effort to repair it and protect her from yourself and your community, you still almost really can't."
+In my infinite charity for Destiny, I said: "You have so much more power than her in this situation that even if you're trying to make a conscious effort to repair it and protect her from yourself and your community, you still almost really can't."
 
 He replied, "Sure, but then what do I do? Because I'm the one that gets attacked, right?"
 
 Surprised at his unwillingness to acknowledge the power differential, I pointed out that "anything negative you say about her is amplified by 10 million compared to what she says about you."
 
-Steven replied, "But I don't say negative things about her."
+Destiny replied, "But I don't say negative things about her."
 
 Taken further aback, I said, "Even if you're just implying–you're implying negative things about her right now in this conversation."
 
-The mediation started to seem impossible because Steven wouldn't actually take a position.
+The mediation started to seem impossible because Destiny wouldn't actually take a position.
 
 Me: Why do you care what she says?
 
-Steven: Technically I guess I don't, because I can just do this. But for her sake it's probably not healthy, right?
+Destiny: Technically I guess I don't, because I can just do this. But for her sake it's probably not healthy, right?
 
 Me: I hate when people call me an abuser. It doesn't affect you?
 
-Steven: Everybody calls me an abuser, I don't care at this point.
+Destiny: Everybody calls me an abuser, I don't care at this point.
 
 Me: Doesn't that make it worse?
 
-Steven: No. It is what it is. I don't care.
+Destiny: No. It is what it is. I don't care.
 
 Me: Okay, so you're saying that your request for her to stop calling you an abuser or stop relitigating this–
 
-Steven: I think it's bad for her mental health.
+Destiny: I think it's bad for her mental health.
 
 A few minutes later, I paraphrased his position: "I'm telling this person [to] stop saying bad stuff about me only for her own good. I'm a saint and I just want what's best for you and what's best for you is to keep my name out of your fucking mouth you lying bitch."
 
-After a pause, Steven asked his chat: "Where did I go to get that dragon stone?"
+After a pause, Destiny asked his chat: "Where did I go to get that dragon stone?"
 
-Giving up on reaching him, I left them with this: "You're both each other's worst nightmare. Steven's worst nightmare is that he's going to turn into a sensitive, thin-skinned, ranting, raving, crying woman, and Ana's worst nightmare is that she's going to turn into an abusive predator who abuses her power and steps on people and hurts them."
+Giving up on reaching him, I left them with this: "You're both each other's worst nightmare. Destiny's worst nightmare is that he's going to turn into a sensitive, thin-skinned, ranting, raving, crying woman, and Ana's worst nightmare is that she's going to turn into an abusive predator who abuses her power and steps on people and hurts them."
 
-Some time during the spring: Steven deletes every Discord DM he has ever sent Ana.
+Some time during the spring, Destiny deleted every Discord DM he has ever sent Ana.
 
-May 26, 2022: Steven directed his audience to Ana's Kiwifarms thread, effectively doxxing her on his stream.
+May 26, 2022: Destiny directed his audience to Ana's Kiwifarms thread, effectively doxxing her on his stream.
 
 He did this likely in retaliation for something she'd said about him on stream (explained in their DM exchange below), despite being on relatively good terms and despite having sexted two days prior.
 
 Kiwifarms is a forum where users track and discuss the lives of lolcows (internet figures who provide entertainment in the form of schadenfreude). It is common for forum users to dox their targets and to take sadistic delight in the psychological harm they inflict.
 
-Cheerfully, Steven said:
+Cheerfully, Destiny said:
 
 "This is my only non-media blackout time… somebody on Kiwifarms has made a thread of Ana. I'm only doing non-media blackout because I know you fuckers are going to be finding it slowly over the next week or two and then talking about in chat and then getting big bans. So if you are obsessed with Ana, and you want to talk about her all the time, you, chatter, you can actually go to Kiwifarms and you can go and post all you want, read all you want, make accounts there… people put a lot of effort into categorizing and archiving everything. There you go, okay?
 
 "All right, boom. Now back to media blackout mode. Oh, the reason why we do the media blackout is because anytime she gets any attention, that will loop and feed into itself for fucking hours or weeks or months or whatever."
 
-Ana's Kiwifarms thread had been created two weeks earlier and had averaged 1.4 posts per day. The day Steven signal-boosted the thread there were 35 posts, followed by another 99 that week.
+Ana's Kiwifarms thread had been created two weeks earlier and had averaged 1.4 posts per day. The day Destiny signal-boosted the thread there were 35 posts, followed by another 99 that week.
 
-Ana's full name and city were doxxed the day Steven announced the thread, with one user saying, "Kimi just lied on stream saying that her dox is fake and the information is not true. Alright, challenge accepted stalker!" The user posted Ana's family photos and screenshots from her family's social media to prove that she had been successfully doxxed.
+Ana's full name and city were doxxed the day Destiny announced the thread, with one user saying, "Kimi just lied on stream saying that her dox is fake and the information is not true. Alright, challenge accepted stalker!" The user posted Ana's family photos and screenshots from her family's social media to prove that she had been successfully doxxed.
 
-Ana DMed Steven: WTF IS WRONG WITH YOU. YOU JUST OUTED THAT KIWIFARMS THREAD ABOUT ME. DUDE YOU ARE HORRIBLE.
+Ana DMed Destiny: WTF IS WRONG WITH YOU. YOU JUST OUTED THAT KIWIFARMS THREAD ABOUT ME. DUDE YOU ARE HORRIBLE.
 
-Steven: I have a media blackout related to your stuff and I wanted everyone to get it out before people were talking about it incessantly over the next two weeks as more and more people discovered it.
+Destiny: I have a media blackout related to your stuff and I wanted everyone to get it out before people were talking about it incessantly over the next two weeks as more and more people discovered it.
 
 You are constantly talking about me on your stream so I think it's fair for me to bring it up, you went as far as to say I was sexually abusive the last time you mentioned me.
 
 Ana: … Because you threatened to leak my nudes, you fucking sociopath. YOU LITERALLY RUINED MY FUCKING LIFE. YOU JUST DOXXED ME ON YOUR STREAM FUCK YOU. … You put me in danger.
 
-Steven: You're doing it to yourself, and you're going to keep doing it to yourself.
+Destiny: You're doing it to yourself, and you're going to keep doing it to yourself.
 
-October 24, 2022: Lav, a 24-year-old streamer Steven had a sexual relationship with, told Steven on stream that he hadn't done a good job of protecting Ana from harassment.
+October 24, 2022: Lav, a 24-year-old streamer Destiny had a sexual relationship with, told Destiny on stream that he hadn't done a good job of protecting Ana from harassment.
 
-Steven immediately threatened to cut ties with her if she kept talking.
+Destiny immediately threatened to cut ties with her if she kept talking.
 
 I was part of the stream as well, and I agreed with Lav that he was not simply Ana's victim (I still knew very little about their relationship).
 
-Shouting, Steven said her abuse of him was as straightforward as somebody being locked in a basement, beaten, and starved.
+Shouting, Destiny said Ana’s abuse of him was as straightforward as somebody being locked in a basement, beaten, and starved.
 
 He went to the bathroom, leaving Lav and me alone to talk in front of the audience.
 
@@ -1118,27 +1114,29 @@ mrgirl and Lav are narcissist
 
 Destiny fans started multiple posts in my subreddit (the topic of Ana is banned from his) about how I was weaponizing his abuse without understanding the situation.
 
-They commented: Why are we reopening this can of worms? It feels like other peoples trauma is being hijacked so people can win an argument. If this is something that has to be discussed do it in private. For the love of god!
+They commented:
+
+Why are we reopening this can of worms? It feels like other peoples trauma is being hijacked so people can win an argument. If this is something that has to be discussed do it in private. For the love of god!
 
 Link | Archive
 
-And: I don't care what Steven thinks about it to be honest. This was a line for me. I don't know what exactly I can see from Max to erase the feeling of absolute disgust I have rn.
+I don't care what Steven thinks about it to be honest. This was a line for me. I don't know what exactly I can see from Max to erase the feeling of absolute disgust I have rn.
 
 Link | Archive
 
-Though I had been warned never to mention Ana, I was still surprised by the response, and pointed out that Steven had fucked a streamer, didn't hold boundaries with her despite calling her a stalker, and didn't hold his boundary with Lav about not wanting to talk about it. I couldn't understand why the fans of this 33-year-old millionaire shit-talker were rushing to hold his boundaries for him.
+Though I had been warned never to mention Ana, I was still surprised by the response, and pointed out that Destiny had fucked a streamer, didn't hold boundaries with her despite calling her a stalker, and didn't hold his boundary with Lav about not wanting to talk about it. I couldn't understand why the fans of this 33-year-old millionaire shit-talker were rushing to hold his boundaries for him.
 
 Two weeks later I found out he'd been sexting her on and off all along. I felt strongly that I should speak out about it, if only to repent for my own complicity, and began working on this project. 
 
-November 10, 2022: Steven found out I was investigating his professional relationships and accusing him of sexual misconduct. He launched a counterattack immediately, calling me a rapist, abuser, manipulator, and narcissist on stream.
+November 10, 2022: Destiny found out I was investigating his professional relationships and accusing him of sexual misconduct. He launched a counterattack immediately, calling me a rapist, abuser, manipulator, and narcissist on stream.
 
 Anticipating this, I begged Ana for three hours to give me a screenshot proving he was still sexting her.
 
-She was extremely resistant, as she felt a screenshot would be too much of a violation of Steven's privacy and she didn't want to jeopardize her ongoing relationship with him. She suggested I go public without it, saying she would provide one if Steven denied the claim.
+She was extremely resistant, as she felt a screenshot would be too much of a violation of Destiny's privacy and she didn't want to jeopardize her ongoing relationship with him. She suggested I go public without it, saying she would provide one if Destiny denied the claim.
 
 Fearing I would be hung out to dry, I recruited my girlfriend and Lav to help me convince her.
 
-Steven started up the attack stream, titled "I'm Nuclear," and began his campaign to smear and discredit me. I still had permissions in his Discord server, so I jumped onto the stream and said, "You've been sexting consistently with Ana for a year."
+Destiny started up the attack stream, titled "I'm Nuclear," and began his campaign to smear and discredit me. I still had permissions in his Discord server, so I jumped onto the stream and said, "You've been sexting consistently with Ana for a year."
 
 He responded, "Me and Ana don't have any problems."
 
@@ -1148,7 +1146,7 @@ He countered that she did stalk him, but that stopped a year ago. They've been c
 
 When I kept arguing, he muted me. So I left.
 
-Ana gave me the screenshot and I tweeted it out. She would later DM Steven: The only reason I even showed mrgirl that screenshot was because he said it will help people to see that I'm not a stalker… keep this private okay pls because Max scares the shit outta me… he is INSANELY MANIPULATIVE. Like holy shit. The amount of coercion he was putting on me to send him a screenshot of our sexting was insane… it's like nothing I've ever experienced before. 
+Ana gave me the screenshot and I tweeted it out. She would later DM Destiny: The only reason I even showed mrgirl that screenshot was because he said it will help people to see that I'm not a stalker… keep this private okay pls because Max scares the shit outta me… he is INSANELY MANIPULATIVE. Like holy shit. The amount of coercion he was putting on me to send him a screenshot of our sexting was insane… it's like nothing I've ever experienced before. 
 
 Steven: Yeah I know. He's got you and Lav twisted into this idea that I'm running around sexually manipulating and abusing people on my stream lol.
 
@@ -1168,71 +1166,71 @@ Over the nearly three years since their first conversation, Steven has mentioned
 
 Sam
 
-In early 2021, Steven funded and organized door-to-door canvassing for the mayoral campaign of political novice Mark Gudgel in Omaha. The two also did promotional media appearances together.
+In early 2021, Destiny funded and organized door-to-door canvassing for the mayoral campaign of political novice Mark Gudgel in Omaha. The two also did promotional media appearances together.
 
-As the primary election neared, the communities of rival political streamers (and former proteges of Steven's) criticized Steven’s involvement in the campaign, noting in particular his 2020 comment that: "The rioting needs to fucking stop, and if that means white, redneck fucking militia dudes out there mowing down dipshit protesters that think that they can torch buildings at 10 p.m., then at this point they have my fucking blessing."
+As the primary election neared, the communities of rival political streamers (and former proteges of Destiny's) criticized Destiny’s involvement in the campaign, noting in particular his 2020 comment that: "The rioting needs to fucking stop, and if that means white, redneck fucking militia dudes out there mowing down dipshit protesters that think that they can torch buildings at 10 p.m., then at this point they have my fucking blessing."
 
-On March 2, 2021, Steven invited an Omaha resident (who had criticized him on twitter) for a chat on stream.
+On March 2, 2021, Destiny invited an Omaha resident (who had criticized him on twitter) for a chat on stream.
 
-Sam, a non-binary 21-year-old, was a fan of Steven's rival streamers (Hasan and Vaush), and thought Steven was poisonous for Gudgel's campaign.
+Sam, a non-binary 21-year-old, was a fan of Destiny's rival streamers (Hasan and Vaush), and thought Destiny was poisonous for Gudgel's campaign.
 
 Sam began, "I'm concerned. I'm from Omaha. I live in Omaha. And I'm concerned with a potential mayor candidate campaigning with someone like you. Who has said the n-word and said the f-slur online, and–"
 
-Steven: Why would you focus so much on me and not on Mark's actual policy positions or what Mark believes? Like you realize I'm not part of Mark's campaign, I'm not running for office. 
+Destiny: Why would you focus so much on me and not on Mark's actual policy positions or what Mark believes? Like you realize I'm not part of Mark's campaign, I'm not running for office. 
 
 Sam: But you're definitely bringing over your supporters and your fans–
 
-Steven: Do you think that you should be vetting and denying help if you don't agree one hundred percent ideologically with every single canvasser or somebody that comes to volunteer?
+Destiny: Do you think that you should be vetting and denying help if you don't agree one hundred percent ideologically with every single canvasser or somebody that comes to volunteer?
 
-Sam fought valiantly but was unable to keep up with Steven's confusing reframing of the argument. Sam also described feeling nervous and overwhelmed as Steven got angrier and angrier. 
+Sam fought valiantly but was unable to keep up with Destiny's confusing reframing of the argument. Sam also described feeling nervous and overwhelmed as Destiny got angrier and angrier. 
 
-Steven accused Sam of participating in disgusting party politics, saying "You actually don't know anything about [Gudgel]."
+Destiny accused Sam of participating in disgusting party politics, saying "You actually don't know anything about [Gudgel]."
 
 Sam said, "I do know about him… I work at Omaha North High School, dude. I work there. I'm doxxing myself, dude."
 
 At the time, Mark was an English teacher at Omaha North.
 
-While they spoke, Steven's fans scoured Sam's twitter. They found a couple racial and homophobic jokes, which Steven read aloud and displayed on screen.
+While they spoke, Destiny's fans scoured Sam's twitter. They found a couple racial and homophobic jokes, which Destiny read aloud and displayed on screen.
 
 In one, Sam had said "Very easy to spot the Jew in the flood of Christmas tweets" while teasing a friend at age 15.
 
 Sam: It's weird that you're that obsessed with me that you're going that far. 
 
-Steven: Okay. Hey, these are all on your timeline, it's easy to search on your timeline and look for things.
+Destiny: Okay. Hey, these are all on your timeline, it's easy to search on your timeline and look for things.
 
 Sam: Don't you think that's weird? That's a close friend of mine that you're–
 
-Steven: Oh, so you think it's okay to make racist jokes if it's to close friends?
+Destiny: Oh, so you think it's okay to make racist jokes if it's to close friends?
 
-The debate turned increasingly ugly, with Steven giving zero credit to the idea that associating with him could possibly be bad for a political candidate.
+The debate turned increasingly ugly, with Destiny giving zero credit to the idea that associating with him could possibly be bad for a political candidate.
 
-The conversation lasted 90 minutes, with Sam falling silent for 45 minutes after calling in an ally to debate Steven.
+The conversation lasted 90 minutes, with Sam falling silent for 45 minutes after calling in an ally to debate Destiny.
 
 When the ally left, Sam was drunk (and said so) and noticeably slurring. 
 
-Having lost his patience with what he perceived as leftist cancel culture, Steven told Sam, "You only exist to hurt other people."
+Having lost his patience with what he perceived as leftist cancel culture, Destiny told Sam, "You only exist to hurt other people."
 
-As Steven began to wrap up the conversation, Sam said: "Pull your dick out and say you're Hasan's baby boy."
+As Destiny began to wrap up the conversation, Sam said: "Pull your dick out and say you're Hasan's baby boy."
 
-Steven: First of all, how do you even know that I have a penis? That's kind of a weird assumption.
+Destiny: First of all, how do you even know that I have a penis? That's kind of a weird assumption.
 
 Sam: Pull your dick out, wave it around, and say you're Hasan's baby boy.
 
-They fought over who has more of a right to claim Omaha as their city (Steven lived in Los Angeles at the time but his son was being raised in Omaha).
+They fought over who has more of a right to claim Omaha as their city (Destiny lived in Los Angeles at the time but his son was being raised in Omaha).
 
 Eventually Sam, increasingly incoherent, just said "Bleh bleh bleh bleh bleh" and laughed drunkenly.
 
-Steven gave his closing insult: "I hope the relentless negativity continues to play well for you when you're ultra depressed, when you cry in the middle of the night, when you realize that you are a sad, pathetic person and all you can do is to contribute negativity online…"
+Destiny gave his closing insult: "I hope the relentless negativity continues to play well for you when you're ultra depressed, when you cry in the middle of the night, when you realize that you are a sad, pathetic person and all you can do is to contribute negativity online…"
 
 Sam interrupted repeatedly, saying: "Fuck you! Fuck you! I'm here, bitch! I'm here, bitch, you aren't!"
 
-Steven muted Sam, who immediately left the call. 
+Destiny muted Sam, who immediately left the call. 
 
-Steven lamented the fact that, despite having broadcast thousands of hours of himself talking, he is still "held up to such a standard that if I've ever said anything or done anything… I get crucified for it… It really disappoints me that I have to constantly defend and relive and deal with the worst things I've said throughout the history of my existence."
+Destiny lamented the fact that, despite having broadcast thousands of hours of himself talking, he is still "held up to such a standard that if I've ever said anything or done anything… I get crucified for it… It really disappoints me that I have to constantly defend and relive and deal with the worst things I've said throughout the history of my existence."
 
-The following morning, the University of Nebraska at Omaha’s student paper, The Gateway, printed a highly critical story about Steven's involvement with Gudgel's campaign. In addition to referencing Steven's controversies, the author also included accounts from locals who described Steven's canvassers as aggressive and pushy. 
+The following morning, the University of Nebraska at Omaha’s student paper, The Gateway, printed a highly critical story about Destiny's involvement with Gudgel's campaign. In addition to referencing Destiny's controversies, the author also included accounts from locals who described Destiny's canvassers as aggressive and pushy. 
 
-Gudgel told Steven he would have to cut ties with him. Hours before the campaign made the official announcement, Steven wrote in his public chat:
+Gudgel told Destiny he would have to cut ties with him. Hours before the campaign made the official announcement, Destiny wrote in his public chat:
 
 I think Mark‘s suspending his campaign. 
 
@@ -1242,27 +1240,27 @@ He’s getting threats and shit to his family, he says that the stress etc is de
 
 … Mark wants to remain relentlessly positive, but now that it’s over I’m going to write something more scathing.
 
-At 10 a.m., before Gudgel’s announcement, Steven posted an essay titled: Incredibly disappointed at the lack of journalistic integrity at UNO's "The Gateway" and writer Hannah Michelle Bussa
+At 10 a.m., before Gudgel’s announcement, Destiny posted an essay titled: Incredibly disappointed at the lack of journalistic integrity at UNO's "The Gateway" and writer Hannah Michelle Bussa
 
 Link | Archive
 
 The Reddit post would receive 6,500 upvotes, making it the most popular r/Destiny post to this day. 
 
-Steven accused Bussa of intentionally misrepresenting his views on BLM, downplaying his progressive activism, and printing lies about him told by supporters of rival candidates. Additionally, he posted screenshots of the author’s personal social media, pointing to a supposed conflict of interest because she followed a rival campaign's manager on Facebook.
+Destiny accused Bussa of intentionally misrepresenting his views on BLM, downplaying his progressive activism, and printing lies about him told by supporters of rival candidates. Additionally, he posted screenshots of the author’s personal social media, pointing to a supposed conflict of interest because she followed a rival campaign's manager on Facebook.
 
-The Gateway's article's comment section was swarmed by Steven's fans. The tweet announcing the article received 28 likes, while one of the many replies accusing Bussa of bias (with the screenshot of her Facebook account) received 576.
+The Gateway's article's comment section was swarmed by Destiny's fans. The tweet announcing the article received 28 likes, while one of the many replies accusing Bussa of bias (with the screenshot of her Facebook account) received 576.
 
-That afternoon Steven would do a stream titled "Debunking The Hit Piece And Addressing The Attacks - Mini-Manifesto," but he had one other order of business to attend to first.
+That afternoon Destiny would do a stream titled "Debunking The Hit Piece And Addressing The Attacks - Mini-Manifesto," but he had one other order of business to attend to first.
 
 Sam.
 
-Steven consulted his chat:
+Destiny consulted his chat:
 
-Steven: Someone in here said the drunk guy or whatever worked with kids? does anyone have a clip to that + want to clip me the sexual harassment comments he made about me "taking my dick out"? I'll forward to his employment.
+Destiny: Someone in here said the drunk guy or whatever worked with kids? does anyone have a clip to that + want to clip me the sexual harassment comments he made about me "taking my dick out"? I'll forward to his employment.
 
 A fan: do you really think those people you talked to caused the threats to Mark's employment? otherwise this is really bad?
 
-Steven: Fuck off you concern trolling inbred dipshit, if people want to be held accountable, then let's hold people accountable.
+Destiny: Fuck off you concern trolling inbred dipshit, if people want to be held accountable, then let's hold people accountable.
 
 He sent the following email to Omaha North High School:
 
@@ -1276,11 +1274,11 @@ Steven
 
 Darius
 
-In July of 2022, Melina caught Steven having an affair. Both her and Steven told multiple people the details of the affair, making it an open secret in Steven's community, but a secret I've nonetheless agreed to keep.
+In July of 2022, Melina caught Destiny having an affair. Both her and Destiny told multiple people the details of the affair, making it an open secret in Destiny's community, but a secret I've nonetheless agreed to keep.
 
-At the time, Melina was extremely distraught and unstable, and sought emotional support from Darius, a small 25-year-old streamer in Steven's community who was a close friend and previous sex partner of Melina's.
+At the time, Melina was extremely distraught and unstable, and sought emotional support from Darius, a small 25-year-old streamer in Destiny's community who was a close friend and previous sex partner of Melina's.
 
-After confiding in Darius about her heartbreak and suicidal feelings, Melina invited him to move to Austin with her. She would get a break from Steven, and Darius would get a break from his own troubled relationship with his 23-year-old then-fiancee, Sushi.
+After confiding in Darius about her heartbreak and suicidal feelings, Melina invited him to move to Austin with her. She would get a break from Destiny, and Darius would get a break from his own troubled relationship with his 23-year-old then-fiancée, Sushi.
 
 Darius had been struggling financially, so Melina flew him out and paid for the Airbnb. According to Darius, she had also floated the idea of renting an apartment where he could live with her in exchange for doing camera work for her content creation.
 
@@ -1310,7 +1308,7 @@ I could fucking cry bro thank you @Trainwreckstv and everyone who donated to hel
 
 Link | Archive
 
-14 minutes later, Melina posted in Steven's public chat:
+14 minutes later, Melina posted in Destiny's public chat:
 
 That dog will get sick again.
 
@@ -1318,15 +1316,15 @@ I could call him a fucking moron and save his money for other shot [sic] he has 
 
 Spending 10 k on a 5 months old dog when you’re not financially stable is something someone has to say no to. Maybe comes off as a dick. But it’s the truth.
 
-August 27, 2022: Talking to his audience, Steven announced that he would not publicly discuss Melina's comments about the dog, "because people are way too fucking emotionally attached to fucking animals."
+August 27, 2022: Talking to his audience, Destiny announced that he would not publicly discuss Melina's comments about the dog, "because people are way too fucking emotionally attached to fucking animals."
 
-(In 2017, Steven posted a video called "My Early Life Was Really Bizarre" in which he described his grandmother repeatedly buying and euthanizing dogs for no reason, two of whom he remembers being particularly attached to. To Steven's great sadness, his father was unable to convince his grandmother to spare them.)
+(In 2017, Destiny posted a video called "My Early Life Was Really Bizarre" in which he described his grandmother repeatedly buying and euthanizing dogs for no reason, two of whom he remembers being particularly attached to. To Destiny's great sadness, his father was unable to convince his grandmother to spare them.)
 
-30 seconds after Steven's refusal to discuss the issue publicly, Darius joined the stream. He angrily told Steven that he was not upset by Melina's lack of sentimentality about the dog, but by her coldness toward him. (1)
+30 seconds after Destiny's refusal to discuss the issue publicly, Darius joined the stream. He angrily told Destiny that he was not upset by Melina's lack of sentimentality about the dog, but by her coldness toward him. (1)
 
-As Darius made his case, Taybor Pepper, an NFL player and fan of Steven's, joined the conversation to mock him and blame him for the dog's sickness, saying "dogs get adopted from shelters all the time without contracting parvo you fucking idiot… you're retarded, you're retarded." (2)
+As Darius made his case, Taybor Pepper, an NFL player and fan of Destiny's, joined the conversation to mock him and blame him for the dog's sickness, saying "dogs get adopted from shelters all the time without contracting parvo you fucking idiot… you're retarded, you're retarded." (2)
 
-Steven laughed with glee as Pepper demeaned Darius, who became increasingly agitated.
+Destiny laughed with glee as Pepper demeaned Darius, who became increasingly agitated.
 
 "I think the worst thing I did here was try, and then you guys are like shitting on me for it. Are you telling me I should have just fucking sat there and kicked the bucket and just let myself fucking die? It's like I don't know what the fuck you want me to do." (3)
 
@@ -2732,8 +2730,6 @@ Brittany: What the fuck. Speak for yourself. No.
 Me: Steven is our boss. And he's also our friend, but he's our boss. And that creates a lot of weird social dynamics, because he's not just the boss of when you can come on his stream and make money and grow your platform. He's the boss of you that way, but he's also in charge of the community's narrative about you. He controls what people think of you to a large degree. So if you're having a conversation with Steven offline and he calls you a dumb pitch, and you call him a dumb bitch, then yeah, blows are exchanged, nothing happens. But it's like the fucking President calling you a dumb bitch when he calls you a dumb bitch on stream. The community of people, this very large community who are very attached to Steven and his beliefs and the way he sees things–it changes your public existence when he says something like that.
 
 [...]
-
-(4)
 
 Me: I think that part of Steven's appeal is that he is not responsible. I think people like that about him. People like that he will have chicken and waffles with Fuentes, and then I play the opposite character saying, oh, shaking my finger, you shouldn't be doing this. I think people like that he will defend saying the n-word. I think people like that he'll make the comments about the dipshit protesters, people like watching him fly off the handle and watching him do things that other creators would call irresponsible. And he usually has a defense for it, an explanation that is consistent with his views on this. However, I think that I'm asking him to be more responsible now, with this topic. I think that he is irresponsible. When he talks to you like you're equals and attacks you as you would an equal, when you're not.
 
@@ -6495,11 +6491,8 @@ SHE SCARED
 THE BITCH IS GONE
 
 MAKE SURE TO JOIN EVERY PANEL WITH HER AND BULLY HER OUT OF THESE SPACES
+
 Me, and Destiny's Platforming of Nick Fuentes
-
-VoD review Doc from yesterday (pre-2022) - https://docs.google.com/document/d/1sVeMyjPoS9i56Zf925xQi4BuPJ7k3eAbRIsqNqtJlmg/edit?usp=drivesdk
-
-Some relevant Reddit material for Fuentes - https://docs.google.com/document/d/1VIRALa-BYZKhD_VDNM8YqlCN0lNBMd0QVVGuqf79_jY/edit?usp=drivesdk 
 
 My sixth-grade teacher had us do a family tree assignment as homework. Other than my family calling me "the brown boy" growing up, this was the first time I'd ever thought about my ethnicity.
 
@@ -8216,24 +8209,24 @@ I thought a friend of mine was joking when he said this, but after laying it all
 I was banned from YouTube because I'm a Jew.
 Subscribe to mrgirl
 
-By Max Karson  ·  Launched 20 minutes ago
+By Max Karson  ·  Launched 2 hours ago
 
 Challenging non-partisan social commentary by Max Karson
-3 likes
-9 Comments
+20 likes
+38 Comments
 	
-PepoTurkey enjoyer
+Anticarpaction
 2 hr ago
 
-PepoTurkey
+In the name of Aevann and the virgin marsey touch grass
 LikeReply
 	
-MTG
-2 hr ago
+Joe
+3 hr ago
 
-OBAMNA
-LikeReply
-7 more comments…
+Forsen
+Like (1)Reply
+36 more comments…
 
 No posts
 
