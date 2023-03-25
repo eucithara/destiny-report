@@ -2312,7 +2312,7 @@ INSANELY MANIPULATIVE. Like holy shit. The amount of coercion he was
 putting on me to send him a screenshot of our sexting was insane… it's
 like nothing I've ever experienced before. *
 
-Steven: *Yeah I know. He's got you and Lav twisted into this idea that
+Destiny: *Yeah I know. He's got you and Lav twisted into this idea that
 I'm running around sexually manipulating and abusing people on my stream
 lol.*
 
@@ -2343,7 +2343,7 @@ messages in ChudLogic’s chat. “Oh, Ana's in Chud's chat saying that now?
 was held hostage to him. I was literally—okay, well, nevermind, maybe
 she's saying it now I guess.”
 
-Over the nearly three years since their first conversation, Steven has
+Over the nearly three years since their first conversation, Destiny has
 mentioned Ana in more than 150 streams.
 
 ### Sam
@@ -2634,13 +2634,11 @@ unable to convince his grandmother to spare them.)
 30 seconds after Destiny's refusal to discuss the issue publicly, Darius
 joined the stream. He angrily told Destiny that he was not upset by
 Melina's lack of sentimentality about the dog, but by her coldness
-toward him. (1)
-
-As Darius made his case, Taybor Pepper, an NFL player and fan of
-Destiny's, joined the conversation to mock him and blame him for the
-dog's sickness, saying "dogs get adopted from shelters all the time
+toward him. As Darius made his case, Taybor Pepper, an NFL player and
+fan of Destiny's, joined the conversation to mock him and blame him for
+the dog's sickness, saying "dogs get adopted from shelters all the time
 without contracting parvo you fucking idiot… you're retarded, you're
-retarded." (2)
+retarded."
 
 Destiny laughed with glee as Pepper demeaned Darius, who became
 increasingly agitated.
@@ -2648,15 +2646,15 @@ increasingly agitated.
 "I think the worst thing I did here was try, and then you guys are like
 shitting on me for it. Are you telling me I should have just fucking sat
 there and kicked the bucket and just let myself fucking die? It's like I
-don't know what the fuck you want me to do." (3)
+don't know what the fuck you want me to do."
 
 Taybor smugly asked, "Did you get pet insurance after she contracted
 parvo from the kennel?"
 
-Steven laughed again as Darius gave a stumbling explanation about how
+Destiny laughed again as Darius gave a stumbling explanation about how
 Sushi's employer provided insurance had not yet kicked in.
 
-Egged on by Steven's mirth, Taybor gave a rundown of Darius's past
+Egged on by Destiny's mirth, Taybor gave a rundown of Darius's past
 financial failures while the audience mocked him.
 
 Melina typed in the audience chat: *I didn't fuck him or date so he flew
@@ -2664,25 +2662,25 @@ home from Austin mad omegalul*
 
 Darius yelled: "Kill yourself you stupid sped, unironically you should
 have killed yourself the day you had the chance!" And a minutes later:
-"I have done enough to not give a fuck, and honestly–" (4)
+"I have done enough to not give a fuck, and honestly–"
 
-Taybor, worried he was about to out the identity of Steven's mistress,
-cut him off: "Slow down, slow down, take a couple breaths. Let's all
-just–let's calm down, chill."
+Taybor, worried he was about to out the identity of mistress, cut him
+off: "Slow down, slow down, take a couple breaths. Let's all just–let's
+calm down, chill."
 
-Steven: I'm just trying not to get caught in the crossfire right now.
+Destiny: I'm just trying not to get caught in the crossfire right now.
 
 Taybor: Let's not say stuff–
 
-Steven: If you want to fight with Melina, that's cool.
+Destiny: If you want to fight with Melina, that's cool.
 
 Darius: I'm not gonna leak any of your stuff.
 
-Steven: Okay, nevermind then, go off, king.
+Destiny: Okay, nevermind then, go off, king.
 
 Melina joined the call and traded jabs with Darius, until he eventually
 calmed down and said, sadly, "What I expect from you is to like care at
-all." (6)
+all."
 
 Melina replied that she didn't want to interact with him anymore,
 explaining: "Most of your messages really has been, 'I'm gonna go kill
@@ -2692,19 +2690,19 @@ be involved or interact."
 
 Darius said, "I thought the level of care was reciprocated after I sat
 there with you for multiple months, days, and weeks about fucking this
-whole shit with Steven and you talking about even killing yourself.
+whole shit with Destiny and you talking about even killing yourself.
 
-Steven laughed at this and said, "Got a lot of suicidal people on the
+Destiny laughed at this and said, "Got a lot of suicidal people on the
 call right now. Everybody needs to chill out a little bit." 
 
 He then asked for a timeline of the events of the weekend in Austin and
-moderated as they argued about who had made a sexual advance on whom
-(7), with Dan tossing in bombs such as, "He said verbatim there was a
-lot of crotch rubbing going on," and, "The ass to crotch pipeline
-\[...\] that is highly sexual stuff." (8)
+moderated as they argued about who had made a sexual advance on whom,
+with Dan tossing in bombs such as, "He said verbatim there was a lot of
+crotch rubbing going on," and, "The ass to crotch pipeline \[...\] that
+is highly sexual stuff."
 
 When Darius read aloud a DM in which he'd asked Melina if she wanted him
-to leave Austin or stay, Steven got tired of playing with his food and
+to leave Austin or stay, Destiny got tired of playing with his food and
 went in for the kill. 
 
 "Okay, can I, real quick, can I give you what it sounds like and what
@@ -2716,8 +2714,8 @@ a little bit like you're kind of asking her, is there like a chance that
 something is going to happen here? Or should I just leave and go back to
 Sushi?"
 
-Projecting nuanced curiosity, Steven laid out what I believe was the
-real reason for the stream: like Bob7 before him, Steven thought Darius
+Projecting nuanced curiosity, Destiny laid out what I believe was the
+real reason for the stream: like Bob7 before him, Destiny thought Darius
 had tried to destroy his marriage.
 
 Dan urged Sushi to join the call, and she did.
@@ -2730,7 +2728,7 @@ Sushi reprimanded her: "The polite thing to do would be to message him
 and say, 'I don't think we're friends anymore.' That's just a nice thing
 to do. If you're going to start shitting on someone publicly \[...\] you
 should just reach out to him first. That would be the polite thing to do
-in that instance. (11)
+in that instance.
 
 Melina replied, "Yeah, I don't care that much."
 
@@ -2740,13 +2738,13 @@ certain way that isn't true to her character. And she's trying to act
 like 'Oh, I'm just so–I don't know what's going on, blah, blah,' but
 behind the scenes, she's such a fucking bitch.
 
-Steven: Sure, then that's fair, and you've said your piece. Okay–
+Destiny: Sure, then that's fair, and you've said your piece. Okay–
 
 Darius: Bye guys. Fuck you, Melina.
 
 Taybor: Have fun with that, Darius.
 
-Steven had ushered Darius out so that he and the other two
+Destiny had ushered Darius out so that he and the other two
 millionaires–Dan and Taybor–could host a dating advice show.
 
 (As of this writing, the dog is healthy and happy.)
@@ -2945,7 +2943,7 @@ She was met with insults from the other viewers:
 
 *you're a child*
 
-Other chatters were perplexed as to why Steven was doing the stream at
+Other chatters were perplexed as to why Destiny was doing the stream at
 all. He explained that it was necessary in order to preempt potential
 accusations of sexual coercion.
 
@@ -3192,9 +3190,9 @@ them on it, or we're just being angry, unreasonable n words.
 
 
 In November 2021, Lav was a 23-year-old musician, TikToker, adult
-content creator, and aspiring streamer. She introduced herself to Steven
-via Instagram DM, telling him she liked the sound of his voice and that
-she'd discovered him through his videos about Ana.
+content creator, and aspiring streamer. She introduced herself to
+Destiny via Instagram DM, telling him she liked the sound of his voice
+and that she'd discovered him through his videos about Ana.
 
 He replied: *Oh well Jesus ahahaha*
 
@@ -3211,21 +3209,21 @@ retire from sex work, as I believe she was self-harming and didn't want
 to help her advertise it. (After a few contentious months we became good
 friends, with me in a mentor role.)
 
-June 16, 2022: Steven DMed Lav that he was masturbating and requested
+June 16, 2022: Destiny DMed Lav that he was masturbating and requested
 that she send a sexual photo, which she did.
 
 That evening, Lav asked: *Are you gonna stream with me and give me
 clout*
 
-Steven replied: *lmao*
+Destiny replied: *lmao*
 
 *If we've got something to talk about, sure thing bucko*
 
-August 2, 2022: Lav and Steven talked about OnlyFans on stream.
+August 2, 2022: Lav and Destiny talked about OnlyFans on stream.
 
 Afterward, she DMed him: *I really liked talking with you* 😈
 
-Steven: *THANKS*
+Destiny: *THANKS*
 
 *now I'll feel less bad bugging you for feet pics*
 
@@ -3233,17 +3231,17 @@ Lav*: Hahahah* 🤝
 
 *Pleasure doing business*
 
-Steven: *based*
+Destiny: *based*
 
 *welcome to the orbiter club*
 
 Lav: ❤️
 
-August 6, 2022: *Steven told Lav that he'd cheated on Melina and had
+August 6, 2022: *Destiny told Lav that he'd cheated on Melina and had
 fallen in love with the other woman, but she'd recently ended their
 affair.*
 
-Steven: *It was just a ""relationship"" thing that was massively
+Destiny: *It was just a ""relationship"" thing that was massively
 escalating over like 5 months and I was ready to end marriage over
 thing*
 
@@ -3254,7 +3252,7 @@ be so hard to pick up where you left off.*
 
 *For both of you*
 
-Steven: *it's okies the Melina stuff is fine I can pick that up again*
+Destiny: *it's okies the Melina stuff is fine I can pick that up again*
 
 *just have to recover from the last girl person*
 
@@ -3264,11 +3262,11 @@ Lav: *\[...\] It is not fine ! Are you both sociopaths? *
 
 *The recovering process involves space*
 
-Steven: *she doesn't know the extent to which I was obsessed with this
+Destiny: *she doesn't know the extent to which I was obsessed with this
 other girl lol*
 
 Lav asked who it was to satisfy her curiosity, even offering to tell him
-a secret of hers as collateral. Steven agreed, and over a voice call he
+a secret of hers as collateral. Destiny agreed, and over a voice call he
 disclosed the identity of his mistress and sought emotional support
 about the situation.
 
@@ -3281,15 +3279,15 @@ Hasan addressed the allegation directly and said that she was 19 at the
 time. The woman in question has not come forward, and Lav has not
 produced any evidence to substantiate her claims.)
 
-August 8, 2022: Steven, ChudLogic, and I streamed a discussion about the
-ethics of OnlyFans recruiting young women with the promise of easy
-money. This was before I understood the sadistic nature of Steven's
+August 8, 2022: Destiny, ChudLogic, and I streamed a discussion about
+the ethics of OnlyFans recruiting young women with the promise of easy
+money. This was before I understood the sadistic nature of Destiny's
 content, so I was surprised when ChudLogic brought on Lav (who had
 become vehemently anti-OnlyFans) and Madame Genevieve (an OnlyFans
 creator) to argue the topic on a very personal level.
 
-I was also unaware that Steven was sexting both Lav and Madame Genevieve
-at the time.
+I was also unaware that Destiny was sexting both Lav and Madame
+Genevieve at the time.
 
 ChudLogic had ostensibly conjured up the panel out of indignance about
 the exploitation of 18-year-old girls (a sentiment I share), but once
@@ -3304,11 +3302,11 @@ inadvertently opened her up to a deeper level of ridicule from the
 audience.
 
 I don't mean to paint myself as innocently naive. I'd been streaming
-with Steven and his orbiters for seven months by then, and I should have
-understood what was happening, but it would be another two months before
-I ran out of excuses for Steven.
+with Destiny and his orbiters for seven months by then, and I should
+have understood what was happening, but it would be another two months
+before I ran out of excuses for Destiny.
 
-After the four-hour stream, two anti-Lav posts appeared on Steven's
+After the four-hour stream, two anti-Lav posts appeared on Destiny's
 subreddit: "Lav thinks it’s wrong for adults to do only fans but it’s
 okay for minors to participate in cuties?" (50 upvotes), and "Why Does
 Anybody Take Lav Seriously?" (249 upvotes).
@@ -3346,13 +3344,13 @@ because of her self harm relapsing.*
 
 (18 upvotes)
 
-Lav and Steven discussed it over DMs:
+Lav and Destiny discussed it over DMs:
 
 Lav: *Your Reddit is….. *
 
 *Self harm*
 
-Steven: *don't go there*
+Destiny: *don't go there*
 
 *LOL*
 
@@ -3360,16 +3358,16 @@ Lav: *Currently slitting in the bath bleeding out*
 
 He replied 21 hours later with an unrelated meme.
 
-August 11, 2022: Steven DMed Lav.
+August 11, 2022: Destiny DMed Lav.
 
-Steven: *Oy hey, just because you've been on stream more and what not, I
-know we've had some kind of sexual conversations in the past but you
+Destiny: *Oy hey, just because you've been on stream more and what not,
+I know we've had some kind of sexual conversations in the past but you
 being on my stream or the way I interact with you never had anything to
 do with that kind of stuff, just being clear on that*
 
 Lav: *Oh so you don’t want to fuck me*
 
-Steven: *stfu obviously duh*
+Destiny: *stfu obviously duh*
 
 *but I'm just saying don't feel like any of our interactions are
 contingent on anything like that*
@@ -3380,13 +3378,13 @@ Lav: *Haha*
 
 August 13, 2022: Someone in a private Discord server recorded and leaked
 a conversation where Lav joked about not wanting to have sex with
-Steven, and also said that Steven wanted to perform oral sex on her
+Destiny, and also said that Destiny wanted to perform oral sex on her
 fiancé.
 
-On stream that day, Dan confronted Steven about his tolerance for Lav's
+On stream that day, Dan confronted Destiny about his tolerance for Lav's
 weaselly behavior.
 
-Steven: I don't know how much was said in jest \[...\] In terms of
+Destiny: I don't know how much was said in jest \[...\] In terms of
 having a threesome with her husband? I'd probably do it, I don't know if
 we've ever talked about that specifically or not, but, I'm bisexual,
 Dan! Accept me.
@@ -3394,51 +3392,51 @@ Dan! Accept me.
 Dan: Yeah, why is it that every person that comes on the stream, you
 need to try and sleep with? That's not good.
 
-Steven: I don't need to, it probably came up in a conversation. I've
+Destiny: I don't need to, it probably came up in a conversation. I've
 known Lav for I think two years…
 
 Dan: …\[ChudLogic\] was playing a thing of her in your Discord saying
 that she would find it funny for you to be with her husband, but would
 never want to be with you because you're a gnome cheese boy.
 
-Steven: Based.
+Destiny: Based.
 
 Dan: That is not based, that is incredibly two-faced and fucked up and
 not okay.
 
-Steven: It might be, I don't know–I'm not pursuing her sexually right
+Destiny: It might be, I don't know–I'm not pursuing her sexually right
 now, though.
 
 Dan: No, that's not it. It's just the fucking weaselly fucking–I don't
 know, it just pisses me off…
 
-Steven: If it was somebody that I was going after sexually and they were
-kind of leading me on, but then they were showing up on my stream and
-shit, I think I would get irritated because I'd be like, "wait a
+Destiny: If it was somebody that I was going after sexually and they
+were kind of leading me on, but then they were showing up on my stream
+and shit, I think I would get irritated because I'd be like, "wait a
 second."
 
 Dan: How do you feel about this person that \[...\] went and said this
 about you after you were, I don't want to say vulnerable, but you know,
 to a little extent, yes. Actually, a lot \[of\] extent, yes.
 
-Steven: Wait, how was I vulnerable to her?
+Destiny: Wait, how was I vulnerable to her?
 
-Steven is likely signaling to Dan that he should not disclose that Lav
+Destiny is likely signaling to Dan that he should not disclose that Lav
 knows about the affair. Dan backpedaled.
 
 Dan: Well, \[...\] that's like, in the words of a very famous streamer,
 that is leaking private sexting details.
 
 I interpret this as a reference to Ana's complaint from two years prior
-that Steven had announced their sexual relationship on stream.
+that Destiny had announced their sexual relationship on stream.
 
-Steven: Yeah, but I don't care. I'm open about all my shit. Like I would
-do a male female threesome, I don't give a fuck. I don't think that's
-ultra private. \[...\] It's a little fucked up, for sure.
+Destiny: Yeah, but I don't care. I'm open about all my shit. Like I
+would do a male female threesome, I don't give a fuck. I don't think
+that's ultra private. \[...\] It's a little fucked up, for sure.
 
-Dan wasn't convinced–Steven continued:
+Dan wasn't convinced–Destiny continued:
 
-Steven: If personally, if I was chasing this person, and then this was
+Destiny: If personally, if I was chasing this person, and then this was
 happening, I would be upset. But like, insofar as our relationship is
 concerned, we talk a little bit privately, and then she's on stream for
 me. But that's mainly the extent of our stuff. And most of the time
@@ -3446,15 +3444,15 @@ she's on stream it's like, pretty brutal experiences for her.
 
 (He laughed as he said "brutal experiences.")
 
-Steven: But it's not like I'm crushing on her really hard and going
+Destiny: But it's not like I'm crushing on her really hard and going
 after her and then I'm finding out \[...\] I'm getting played super
 hard. I'd feel horrible. If that was the case, I'd feel a lot worse.
 
 When Dan said he should be more upset since he seemed to be pursuing Lav
-sexually, Steven said "I'm pretty sure we've spoken sexually, probably
+sexually, Destiny said "I'm pretty sure we've spoken sexually, probably
 like over a year ago."
 
-Steven: The problem is that there are very few types of things in life
+Destiny: The problem is that there are very few types of things in life
 that truly have me as a vulnerable person, that would upset me if
 somebody \[betrayed me\], it's incredibly, incredibly, incredibly
 uncommon somebody has that level of access to me. Sexually? That is
@@ -3469,13 +3467,13 @@ that all you want. It's not gonna bother me.
 Dan: …you've been fucked over by a lot of people. And I'm just trying to
 be like, "Hey–"
 
-Steven: I don't know if any other content creator has fucked me over in
+Destiny: I don't know if any other content creator has fucked me over in
 a way that's like really bothered me before.
 
-In private, Steven became less responsive to Lav's DMs. She asked if he
+In private, Destiny became less responsive to Lav's DMs. She asked if he
 was mad at her.
 
-Steven: *oh*
+Destiny: *oh*
 
 *no*
 
@@ -3489,7 +3487,7 @@ Lav: *Christ*
 
 *Or do we move on because it’s so insignificant*
 
-Steven: *oh uh*
+Destiny: *oh uh*
 
 *I already said it like two days ago*
 
@@ -3500,17 +3498,17 @@ Lav: *Yes of course I don’t say anything real in discord calls*
 
 *But none of that made you feel bad right*
 
-Steven: *nah I'm GOOCHIN'*
+Destiny: *nah I'm GOOCHIN'*
 
 Lav: *I could kill you*
 
-Steven: *good, bitch*
+Destiny: *good, bitch*
 
 🙂
 
 Lav: *When are you coming to la*
 
-Steven: *I think Sept 1st*
+Destiny: *I think Sept 1st*
 
 August 25, 2022: This was the day Destiny mocked Merrick DeVille for her
 suicide attempt on Twitter.
@@ -3773,13 +3771,13 @@ stuff.
 Lav: Well, people can jack off to those, like people are going to jack
 off to those–
 
-Steven: That's not what I asked. I don't know what you're talking about.
-What I'm asking is, are you not going to post any random nudes or naked
-stuff? You're only going to post educational stuff.
+Destiny: That's not what I asked. I don't know what you're talking
+about. What I'm asking is, are you not going to post any random nudes or
+naked stuff? You're only going to post educational stuff.
 
 Lav: No, I will post naked stuff also.
 
-Steven: Okay. Well, that's porn.
+Destiny: Okay. Well, that's porn.
 
 After the stream, he DMed Lav: *GOOD CONVOS SORRY EVERYONE JUMPS IN TO
 GANG UP ON YOU*
@@ -3843,28 +3841,28 @@ Lav: I think it's fucked up because she is Max's friend. And we already
 know that Max has this wound. He's very public about it, where he's very
 cautious of himself around women.
 
-Steven (laughing): No, he's not. What are you
+Destiny (laughing): No, he's not. What are you
 
 talking about?
 
 Lav: Sexually? Yes, he is.
 
-Steven: No, he's made so many women cry or feel uncomfortable on stream.
-What do you mean he's careful–
+Destiny: No, he's made so many women cry or feel uncomfortable on
+stream. What do you mean he's careful–
 
 Lav: No, no, no, sexually, sexually, sexually.
 
-Steven: Sexually he's married to another woman. There is no sexual
+Destiny: Sexually he's married to another woman. There is no sexual
 relationship between him and other women. What are you talking about?
 
 Lav Wait, what are you talking about? No, I'm saying that he has a
 wound–he doesn't want to feel like he's raping anyone.
 
-Steven: I have no idea what you're talking about.
+Destiny: I have no idea what you're talking about.
 
 Lav: Do you not watch his content?
 
-Steven: Yes. And I've seen him put tons of women in incredibly
+Destiny: Yes. And I've seen him put tons of women in incredibly
 uncomfortable conversations.
 
 Listening to them talk, I was sobbing.
@@ -3959,17 +3957,17 @@ uncomfortable. Obviously, either me standing up my body, the
 conversation, something about what I did made you uncomfortable. That
 much is clear.
 
-Lycan, one of Steven's mods, muted Lav and chastised her (and Steven,
+Lycan, one of Destiny's mods, muted Lav and chastised her (and Destiny,
 indirectly) for not taking the conversation seriously. He said he would
-continue to mute anyone who wouldn't "grow the fuck up," and said Steven
-could fire him if he objected.
+continue to mute anyone who wouldn't "grow the fuck up," and said
+Destiny could fire him if he objected.
 
 I was grateful. He paved the way for Chaeiry and I to reach an
 understanding–that our previous conversation had made her uncomfortable,
 and that it made sense that she would read malintent in my actions, but
 that she'd probably been mistaken.
 
-I asked Steven, "As the writer of history. What happened here?"
+I asked Destiny, "As the writer of history. What happened here?"
 
 He said: "It seemed like you were adjusting your pants. That's what I
 saw. I didn't see anything more than that. I wouldn't assume there's
@@ -3982,12 +3980,12 @@ Lycan unmuzzled Lav.
 Lav: I think it sucks so bad, Steven, that you have not come to Max's
 aid at all. I think that you know–
 
-Steven: Careful! Hold on! If you want to be–
+Destiny: Careful! Hold on! If you want to be–
 
 Lav: We just saw Chaeiry fucking lie about it. She did not concede she
 doubled down on it. 
 
-Steven: You're assuming–hold on, hold on…
+Destiny: You're assuming–hold on, hold on…
 
 Lav: No, no, no, let me finish. Okay. Max cannot defend himself right
 now, because if he does, he looks really bad. So he needs you. He needs
@@ -3995,16 +3993,16 @@ you to create a narrative–or not create a narrative, but to tell the
 general public that he is not a creepy antisocial rapist, and you will
 not do it for some reason.
 
-I tried to interject, but Steven told me to shut the fuck up.
+I tried to interject, but Destiny told me to shut the fuck up.
 
-Steven: Lav, you just made the exact same fucking mistake that Chaeiry
+Destiny: Lav, you just made the exact same fucking mistake that Chaeiry
 did. Chaeiry saw an action, she assumed a state of mind–don't ever
 fucking roll your eyes at me like that.  I swear to god, I ever see you
 do that again.
 
 Lav: Or what?
 
-Steven: Stop. So Chaeiry's huge fuck up here was that she assumed a
+Destiny: Stop. So Chaeiry's huge fuck up here was that she assumed a
 state of mind or she assumed an intention that probably wasn't there,
 \[...\] and I did say that unequivocally. I said that in clear terms. I
 think most people would understand. I don't think Max did anything weird
@@ -4014,26 +4012,26 @@ that Chaeiry is like just fucking lying. Okay now it could be–
 
 Lav: She did just lie.  
 
-Steven: Saying something that is not true is not the same as lying. Do
+Destiny: Saying something that is not true is not the same as lying. Do
 you understand that?
 
 Lav: No. No I don't.
 
 Me: He's saying that she was confused.
 
-Steven: No, stop. Okay, a lie implies intent. Okay, if I tell you I'm
+Destiny: No, stop. Okay, a lie implies intent. Okay, if I tell you I'm
 going to be home by five–
 
 Lav: No.
 
-Steven: Yes, it does, you dumb bitch! Okay, if I tell you, I'm gonna be
+Destiny: Yes, it does, you dumb bitch! Okay, if I tell you, I'm gonna be
 home by 5pm today, and I run late from work and I get home at like, 5:20
 I didn't fucking lie to you. It might not be true.
 
 Lav: First of all, don't talk to me like that. Don't call me a dumb
 bitch.
 
-Steven: Stop, stop, you're actually triggering the fuck out of me. Holy
+Destiny: Stop, stop, you're actually triggering the fuck out of me. Holy
 shit, stop. There is a difference between a lie and being wrong about
 something. Okay? It could totally be the case. The problem I had with
 you is you're making the exact same mistake that Chaeiry's making, but
@@ -4051,7 +4049,7 @@ the responsibility that comes with a platform and comes with making
 accusations like this, where I think you do have some kind of
 responsibility to not be confused. When you make these accusations–
 
-Steven: I just said that. You probably shouldn't be going live with
+Destiny: I just said that. You probably shouldn't be going live with
 stuff like this without doing a very clear, like, recording. What do you
 want me to say? Chaeiry! You're a dumb fuck! Don't do this!
 
@@ -4061,21 +4059,21 @@ saying that \[...\] when a baseless and unfounded accusation or a silly
 accusation can ruin someone's life, I feel like you calling it silly at
 that point is kind of absolving her of all responsibility. \[...\]
 
-Steven: The reason why I think all of this is silly is because none of
+Destiny: The reason why I think all of this is silly is because none of
 this is ruining anybody's life. And I don't think anybody's gonna
 remember this in two days \[...\] 
 
 Lav: People are waiting for max to fuck up. Do you think people aren't
 waiting for max to fuck up even a little bit?
 
-Steven: Not as much as you're waiting for Chaeiry to fuck up \[...\] You
-literally told me you were coming on stream to do a victory lap. 
+Destiny: Not as much as you're waiting for Chaeiry to fuck up \[...\]
+You literally told me you were coming on stream to do a victory lap. 
 
 Lav: \[...\] You're scared to go too hard on her because she already
 wrote a fucking twitlonger about you. This is a pattern that Chaeiry
 has.
 
-Steven: Chaeiry can write as many twitlongers about me as she wants. I
+Destiny: Chaeiry can write as many twitlongers about me as she wants. I
 don't care, I am not scared of any of you crazy fucking women writing
 any twitlongers about me because I'm above it all. \[...\] But you're
 all so ready for Chaeiry to fuck up \[...\] so everybody's making way
@@ -4083,7 +4081,7 @@ too extreme statements \[...\]
 
 Me: But I'm not making too extreme statements though, right?
 
-Steven (shouting): No, your statements Max are annoyingly fucking
+Destiny (shouting): No, your statements Max are annoyingly fucking
 reserved, and I understand why, you should be going way harder, but
 obviously you're \[...\] worried about it looking bad. But yeah, you
 should be pushing way harder. You shouldn't be like "Chaeiry, is there
@@ -4097,10 +4095,10 @@ The truce with Chaeiry didn't last long–all of the orbiters made sure to
 publicly attack me once they learned I was writing this piece. When I
 DMed her asking for an interview, she said "fuck off."
 
-During the stream, Steven and Lav had the following conversation over
+During the stream, Destiny and Lav had the following conversation over
 DMs:
 
-Steven*: you're on your way to success*
+Destiny*: you're on your way to success*
 
 *i'm proud of you, good lil' drama farmer*
 
@@ -4126,26 +4124,26 @@ Lav: *do not ever call me a bitch like that again*
 
 *do not do that.*
 
-Steven: 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐
+Destiny: 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐 😐
 
 Lav: *youre a good streamer but you need to be a good friend to max rn*
 
-Steven: *HE IS FINE*
+Destiny: *HE IS FINE*
 
 *YOU GUYS BLEW THIS UP 1000000000000000X MORE THAN IT NEEDED TO BE*
 
 \[...\]
 
-Steven: ♥
+StevDestinyen: ♥
 
 Lav: 💖💖
 
-Steven*: sorry if "Bitch" is a trigger from \[sic\] you I won't call you
-that anymore*
+Destiny*: sorry if "Bitch" is a trigger from \[sic\] you I won't call
+you that anymore*
 
 *don't call me a simp tho I'll fuckin' kill u*
 
-Steven: *SAYING WE SPOKE FACE 2 FACE*
+Destiny: *SAYING WE SPOKE FACE 2 FACE*
 
 *M8*
 
@@ -4167,7 +4165,7 @@ spamming me with it, is a lot*
 *Sorry I didn’t want it to look like I was 100% blaming you for viewer
 response to me*
 
-Steven: *Bro you are INSANELY COMBATIVE online I have been so
+Destiny: *Bro you are INSANELY COMBATIVE online I have been so
 unbelievably patient in our conversations but you go so hard over and
 over again idk what you expect \[...\]*
 
@@ -4192,7 +4190,7 @@ everything. I just want you to be more aware of how I’m feeling and the
 way I FEEL and think you should be aware of the parasocial influence
 your audience has*
 
-Steven: *You have called me and others a MILLION NAMES you are totally
+Destiny: *You have called me and others a MILLION NAMES you are totally
 out of line if me calling you a bitch is what set things over the line*
 
 *And if it was "in person" ofc it's nicer BECAUSE WE'RE NOT ARGUING*
@@ -4203,7 +4201,7 @@ Lav: *Steven I don’t have the audience you have.*
 
 *People read that.*
 
-Steven: *Then why are you accusing me of being a SIMP for someone when
+Destiny: *Then why are you accusing me of being a SIMP for someone when
 I'm just trying to be impartial???*
 
 Lav: *And they’re like hm okay stevens totally done with this bitch,
@@ -4212,7 +4210,7 @@ let’s go nuclear*
 *I wasn’t implying you were being a simo \[sic\] first of all I was
 implying you unconfrontational*
 
-Steven: *You literally SAID IT*
+Destiny: *You literally SAID IT*
 
 *What??????*
 
@@ -4222,13 +4220,13 @@ Lav: *And second, why are you so scared of being a “simp”*
 
 *Did I?*
 
-Steven: *Because you are accusing me of being bias in a situation
+Destiny: *Because you are accusing me of being bias in a situation
 because I want to fuck someone??? It's literally hardcore enforcing the
 misogyny I'm trying to weed out of my community*
 
 Lav: *I don’t think that’s what I said ?*
 
-Steven: *???????*
+Destiny: *???????*
 
 Lav: *I think I said you were worried about another twitlonger or dirt
 she’d have if you didn’t defend her*
@@ -4252,7 +4250,7 @@ others?*
 |
 [Archive](https://web.archive.org/web/20230310141551/https://www.reddit.com/r/Destiny/comments/y7lpki/comment/isv7o6w)
 
-*This was so damn cathartic.* \[referring to Steven screaming that Lav
+*This was so damn cathartic.* \[referring to Destiny screaming that Lav
 is a dumb bitch\]
 
 *(287 upvotes)*
@@ -4288,7 +4286,7 @@ Lav: *Look at your YouTube comments*
 
 A sampling of popular comments on the most recent stream:
 
-Steven*: "lying requires intent" lav: "No" this is a prime example of
+Destiny*: "lying requires intent" lav: "No" this is a prime example of
 lav just saying whatever she feels like at the moment and not holding
 any actual consistent beliefs she just says whatever she feels like at
 the moment*
@@ -4324,12 +4322,12 @@ little excessively."*
 Lav: *Why are you pretending your audience is not filled with
 misogynists and vitriolic el toxicos*
 
-Steven's  reply: *…*
+Destiny's  reply: *…*
 
 Lav: No concession ? You’re steadfast in that you handled everything
 great and correctly \[...\] ?
 
-An hour later, Steven posted the following in his offline chat:
+An hour later, Destiny posted the following in his offline chat:
 
 *prepare yourselves for when I get back home*
 
@@ -4354,7 +4352,7 @@ Lav: *Okay come over*
 
 *\[...\]*
 
-Steven: *None of my recent changes have anything to do with you.*
+Destiny: *None of my recent changes have anything to do with you.*
 
 \[...\]
 
@@ -4363,7 +4361,7 @@ being fired up. This is a nothing argument. I had a moment the other
 day. I’m not mad. I hope you’re not mad because I haven’t given you a
 reason to be.*
 
-Steven: *I get extremely fucking triggered when I am getting shit on
+Destiny: *I get extremely fucking triggered when I am getting shit on
 from both sides so eventually it just makes me completely disconnect
 from the issue and I stop caring because it's absolutely not worth it*
 
@@ -4372,13 +4370,13 @@ otherwise Take care of yourself*
 
 October 22, 2022: Lav co-hosted my call-in show, mrgirl Hotline.
 
-I told her that I had just confronted Steven about how he treats his
+I told her that I had just confronted Destiny about how he treats his
 orbiters. I described how his system was rigged to make us look bad, and
 if we somehow managed to successfully challenge him he would ban support
 for us anyway.
 
 Lav said that was what we signed up for. We would be dogpiled in
-exchange for Steven doing us the favor of bringing us on stream.
+exchange for Destiny doing us the favor of bringing us on stream.
 
 I was adamant that it was not a favor–we'd been cast on an entertainment
 program and we should be treated with dignity rather than be abused. I
@@ -4391,43 +4389,43 @@ over to someone's house, I have to be allowed to use their bathroom. If
 I'm not, then I don't want to be there. But you could also frame that as
 me "telling them how to run their household."
 
-I said I could live with Steven having an advantage in all discussions
+I said I could live with Destiny having an advantage in all discussions
 and having more sway over the audience, but not with him banning me and
 anyone who agrees with me from his subreddit, where issues and
 narratives are discussed more thoughtfully than on stream. (I'd been
-banned from his subreddit two days prior–Steven would later tell me that
-he didn't want me whipping up too much negative sentiment about him with
-my criticism that he was sanitizing Nick Fuentes.)
+banned from his subreddit two days prior–Destiny would later tell me
+that he didn't want me whipping up too much negative sentiment about him
+with my criticism that he was sanitizing Nick Fuentes.)
 
-Lav countered that Steven doesn't care about any of that, and that I
+Lav countered that Destiny doesn't care about any of that, and that I
 have to choose if I'm going to leave or be his little monkey and dance
 for him. She told me he can't be trained to treat people well and that I
 should let go of the idea that I can teach him how to be a good friend.
 
-The following day, Lav DMed Steven.
+The following day, Lav DMed Destiny.
 
 Lav: *\[...\] I didn’t mean to talk shit about you, just level with max
 and find a middle ground*
 
-Steven: 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂
+Destiny: 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂
 
 Lav: *I’m too baby for drama*
 
-Steven: *YOU ARE DRIVING ME CRAZY M80*
+Destiny: *YOU ARE DRIVING ME CRAZY M80*
 
-Lav: *I am?*
+Lav: I *am?*
 
-Steven: *YES*
+Destiny: *YES*
 
 Lav: *What did I do?!*
 
 *I feel like I’ve been handling this well?*
 
-Steven: 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂
+Destiny: 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂 🙂
 
 *\[...\]*
 
-Steven: *How you speak about me is insane*
+Destiny: *How you speak about me is insane*
 
 *and to some extent how you speak about the community*
 
@@ -4438,26 +4436,26 @@ to murder you*
 
 (He'd said that she was childish and unempathetic.)
 
-Steven: 🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂
+Destiny: 🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂
 
 Lav: *can i come on*
 
-Steven: *ANY TIME*
+Destiny: *ANY TIME*
 
 🙂
 
-The resulting conversation would be uploaded to Steven's channel with
+The resulting conversation would be uploaded to Destiny's channel with
 the title "Destiny Finally Takes Gloves Off, Debate Ends In TEARS."
 
 Lav: The framing of this as drama has me stressed out.
 
-Steven: Good. Feel stressed, because you have no problem running your
+Destiny: Good. Feel stressed, because you have no problem running your
 mouth on 15 other fucking channels about this quote unquote drama.
 \[...\]
 
 Lav: \[...\] When did I talk shit? What did I say?
 
-Steven: \[...\] The way that you characterize me as a \[blithering\]
+Destiny: \[...\] The way that you characterize me as a \[blithering\]
 fucking moron \[...\] "oh, he just doesn't care about me, and he's being
 mean and \[it's\] the whole reason his community hates me." \[...\] You
 even said personally to me, you said that one phrase that I said to you
@@ -4465,7 +4463,7 @@ was a big reason why you were getting–
 
 Lav: It emboldens your community, which is just true.
 
-Steven: \[...\] I've told you a million times what gets you the most
+Destiny: \[...\] I've told you a million times what gets you the most
 hate. And \[...\] I see it happening over and over and over and over
 again. Just \[to sticky note it over\] the conversation, let me say it
 real quick, real quick–
@@ -4479,17 +4477,17 @@ feedback on how to have winning debates or how to talk smoother or how
 to be more logical, right? \[...\] That's fine. Even if they say it in a
 mean way, that's fine.
 
-Steven: Okay, that's great that you're saying this right now. But when
+Destiny: Okay, that's great that you're saying this right now. But when
 you're on other platforms, you're saying things like, "Oh, well, his
 audience has a lot of Groypers in it." \[...\] My audience has a lot of
 Groypers in it–what a weird statement to say. You spend more time on
 alt-right Groyper platforms than I do. Do you understand that?
 
 ("Groypers" are followers of far right white supremacist Nick Fuentes.
-Lav was referring to the undeniable influx of Fuentes fans into Steven's
-subreddit as a result of Steven's friendly streams with him.
+Lav was referring to the undeniable influx of Fuentes fans into
+Destiny's subreddit as a result of Destiny's friendly streams with him.
 
-Steven's counter is to set up yet another zero-sum game by pointing out
+Destiny's counter is to set up yet another zero-sum game by pointing out
 that Lav hangs out with Groypers, too.)
 
 Lav: Okay, Steven, sure, but I'm not interacting with as many males as
@@ -4497,7 +4495,7 @@ you, first of all. So I think in a space that is dominated mostly by
 males, there's going to be a little bit of misogyny that's bred more
 than if it's an all female space–
 
-Steven: Okay, you've totally pivoted away from the original claim, but
+Destiny: Okay, you've totally pivoted away from the original claim, but
 go ahead.
 
 Lav: You didn't let me fucking finish, first of all. So even if 80% of
@@ -4505,7 +4503,7 @@ the criticism is valid, 20% of it is so fucking loud. And they're
 posting pictures of me without my makeup on, they're telling me to go
 back to sex work, that I should just shut my fucking mouth–
 
-Steven countered that the ugliest comments about Lav are on Twitter,
+Destiny countered that the ugliest comments about Lav are on Twitter,
 which he can't control and which shouldn't reflect on him or his
 community. She argued against his framing that she was trying to hold
 him accountable for anything, and explained that she was instead trying
@@ -4544,12 +4542,12 @@ that Max is giving you a lot and I know that your audience is giving you
 a lot, and I know that obviously the whole Nick stuff or whatever. I
 don't know. So I've been trying to give you space. But then I–
 
-Steven: But you've been shit-talking me on like every platform you've
+Destiny: But you've been shit-talking me on like every platform you've
 been going on.
 
 Lav: I didn't shit-talk you, Steven.
 
-Steven: You wouldn't say the conversation you had with Max, you don't
+Destiny: You wouldn't say the conversation you had with Max, you don't
 think that was shitting on me a little bit? Or the conversation with
 Brittany and Erudite, you wouldn't say that was shitting on me a little
 bit? You want to watch those clips together? We can go over if we think
@@ -4559,25 +4557,25 @@ Lav: This is what I'll say. Okay, I'll concede, I guess I was
 shit-talking you, but I think in a way that was productive that
 humanized you. So it doesn't seem as bad to me.
 
-Steven: I don't know what that sentence meant.
+Destiny: I don't know what that sentence meant.
 
 Lav: I wasn't painting you as evil.
 
-Steven: You're painting me as uncharitable and dishonest, which is like
+Destiny: You're painting me as uncharitable and dishonest, which is like
 the worst things–I would rather somebody say I have a small dick, okay.
 My honesty and my charitability are the two things that I've extended
 the most to you and to other people in general.
 
 \[...\]
 
-Steven: So when you say things like, "Why do you pretend your audience
+Destiny: So when you say things like, "Why do you pretend your audience
 is not filled with misogynists and vitriolic el toxicos? What is the
 implication there? That it's just a few people on Twitter? The
 implication is huge–
 
 Lav: It's not just a few people. It's enough–
 
-Steven: And then when you say later, you said "you handled everything
+Destiny: And then when you say later, you said "you handled everything
 incorrectly," that implies that there is some level of blame that I have
 there.
 
@@ -4592,7 +4590,7 @@ Groypers and misogynists. I think that they're certainly there, and I
 think that you could probably do things to quell some of that if you
 were extremely cautious.
 
-Steven: I understand the things you're saying–it all feels like
+Destiny: I understand the things you're saying–it all feels like
 placating to me. Because 
 
 when you were talking to Max, Max was making it sound like I was so
@@ -4604,39 +4602,39 @@ Lav: So, no, no, so I still feel that same way. So I think I can love
 you from like, here. But knowing that if I interact with you in that
 way, I'm gonna get my feelings hurt because I can't control you.
 
-Steven: Interact with me in what way?
+Destiny: Interact with me in what way?
 
 Lav: If I go on your stream I can't trust you or expect you to treat me
 with kid gloves anymore.
 
 \[...\]
 
-Steven: You're really good at this, okay. But I'm far older than you,
+Destiny: You're really good at this, okay. But I'm far older than you,
 okay. I see through your devious tricks, okay. \[...\] This implication
 that you were talking about me like a butterfly that you can't catch,
 and you have to let it flap its wings in the wind…
 
-(I agree with Steven here, Lav was placating him, but she didn't have
-much of a choice. Steven hates being placated, yes, but he also can't
+(I agree with Destiny here, Lav was placating him, but she didn't have
+much of a choice. Destiny hates being placated, yes, but he also can't
 tolerate being criticized. When Lav did one, he demanded she switch to
 the other.)
 
 Lav: I said that you struggled interpersonally, I said that you had to
 detach–
 
-Steven: You said that you didn't feel like you wanted to teach me how to
-treat you properly. The implication of that is so much more negative and
-vitriolic than you're giving it credit for \[...\]. The implication was
-that I'm this monster that can't even be trained to treat a woman
+Destiny: You said that you didn't feel like you wanted to teach me how
+to treat you properly. The implication of that is so much more negative
+and vitriolic than you're giving it credit for \[...\]. The implication
+was that I'm this monster that can't even be trained to treat a woman
 properly on stream.
 
 Lav: Whoa, that's not what I meant, that's not what I meant at all.
 
-Steven: That's what you implied. And that probably is what you meant.
+Destiny: That's what you implied. And that probably is what you meant.
 
 \[...\]
 
-Steven: You're like, "I don't really wanna be friends with Steven
+Destiny: You're like, "I don't really wanna be friends with Steven
 because I don't think he knows how to treat people properly. I'm not
 going to train anybody how to treat me well. I think you shouldn't be
 friends with him either."
@@ -4644,40 +4642,40 @@ friends with him either."
 Lav: I never said that you \[and Max\] should not be friends. I said
 that he should let go.
 
-Steven: What does that mean?
+Destiny: What does that mean?
 
 Lav: I don't think that you get it because you have a very detached
 attachment style. I don't think that you understand what anxious
 attachment is or what it feels like. And that's fine.
 
-Steven: No. In this conversation right now–
+Destiny: No. In this conversation right now–
 
 Lav: Steven, are you seriously going to tell me that you don't struggle
 interpersonally?
 
-Steven: No, I don't struggle interpersonally. No, I don't.
+Destiny: No, I don't struggle interpersonally. No, I don't.
 
 Lav: That's a fucking joke.
 
-Steven: It's not a joke. I don't.
+Destiny: It's not a joke. I don't.
 
 Lav: You have you have feuded and fought with everyone in all fucking
 four corners of the fucking internet, Steven.
 
-Steven: Yeah, and I can tell you exactly why I fight with anybody that I
-do. It's not a mystery to me.
+Destiny: Yeah, and I can tell you exactly why I fight with anybody that
+I do. It's not a mystery to me.
 
 Lav: Yeah, there's always a reason, there's always a reason, it's always
 someone else, it's never you. 
 
-Steven: Hold on. That's not true. I have a super aggressive personality.
-There's a lot of reasons why people don't like me, but I know that. I'm
-not confused, I'm never on stream trying to figure out like, "I don't
-know why they're treating me that way." 
+Destiny: Hold on. That's not true. I have a super aggressive
+personality. There's a lot of reasons why people don't like me, but I
+know that. I'm not confused, I'm never on stream trying to figure out
+like, "I don't know why they're treating me that way." 
 
 Lav: But I can't bring up those reasons?
 
-Steven: You could. Oh, are you bringing up those reasons? Because five
+Destiny: You could. Oh, are you bringing up those reasons? Because five
 seconds ago you were trying to say that it wasn't about me, that it was
 about Max, but now that I'm willing to admit, of course, yeah, I am an
 asshole–now you do want to make it about me? Or which one is it? I can't
@@ -4690,14 +4688,14 @@ Lav: I think that I've done a fine job recognizing why you're hurt. And
 you still are making me like this–you're like painting me as this
 villain, like manipulative and–
 
-Steven: Because you kind of are acting like a villain. Yes. But I'm
+Destiny: Because you kind of are acting like a villain. Yes. But I'm
 gonna give you the final word because I have to leave \[...\].
 
 Lav: Yeah, I think that's an unfair characterization, but I don't know
 what else to say. Because I want to have a productive conversation. It
 doesn't feel very productive.
 
-Steven: It doesn't feel productive because I'm not just acquiescing to
+Destiny: It doesn't feel productive because I'm not just acquiescing to
 everything you're saying, Like going yeah, true, I agree, I agree, I
 agree. It feels unproductive because I'm giving you pushback. You
 probably don't get it very much. That would be my guess.
@@ -4706,7 +4704,7 @@ Lav: I get it. I get it enough, it just sucks when I'm trying to be
 vulnerable to you, and you're painting everything that I'm doing maybe
 messily as like, intentional.
 
-Steven: No, hold on. You're not being vulnerable to me, \[...\] you're
+Destiny: No, hold on. You're not being vulnerable to me, \[...\] you're
 giving me excuses, rationalizations and justifications for everything
 you've done.
 
@@ -4715,17 +4713,17 @@ you've done.
 Lav: Maybe my people skills fucking suck then, but for you to be
 painting me–
 
-Steven sighed dramatically.
+Destiny sighed dramatically.
 
 Lav: Dude, and even the way that you're talking to me now. I don't know
 how to ask for what I want from you.
 
-Steven: Okay, talk anytime you want, off stream or on stream, whatever
+Destiny: Okay, talk anytime you want, off stream or on stream, whatever
 you want to do. I need to go \[...\].
 
 Crying, Lav left the call.
 
-Steven: Jesus. Holy fuck. Her and Max are like the two most mind-fucky
+Destiny: Jesus. Holy fuck. Her and Max are like the two most mind-fucky
 people to navigate conversations with. It's actually insane. Jesus.
 
 That day, I watched this stream with Shaelin on our living room TV. Near
@@ -4733,7 +4731,7 @@ the end, Shaelin started crying, and said, "This is the first time I've
 seen his face close up like this. I've never been able to see how sad he
 is."
 
-The following morning, October 24, Steven streamed his reaction to a
+The following morning, October 24, Destiny streamed his reaction to a
 clip of a conversation between Lav and Brittany Simon (another fellow
 Destiny orbiter).
 
@@ -4742,8 +4740,8 @@ self-abandon," the criticism on Destiny's subreddit hits particularly
 hard. Brittany, who said she has borderline personality disorder,
 agreed.
 
-Steven went on a rant about what he perceived as Lav's tendency to blame
-her psychological problems on others "\[...\] Stop externalizing
+Destiny went on a rant about what he perceived as Lav's tendency to
+blame her psychological problems on others "\[...\] Stop externalizing
 everything to things that are in your fucking head, fix it, figure it
 out. The usage of psychology language to everything is so fucking
 grating, kill me. "I have the propensity to self abandon," shut the–no!
@@ -4775,12 +4773,12 @@ take a step back and say, "Okay, am I actually a terrible fucking
 person? Or does this motherfucker flip the script on me constantly?"
 Always be careful of that. Always, always, always be careful of that."
 
-About 10 minutes later, Lav DMed Steven.
+About 10 minutes later, Lav DMed Destiny.
 
-(I don't know if she was watching Steven's stream live, but it's more
+(I don't know if she was watching Destiny's stream live, but it's more
 likely that one of their mutual fans told her that he was criticizing
 her. My own fans notify me whenever anyone prominent talks about me,
-supposedly to be helpful, but probably also to stir up conflict. Steven
+supposedly to be helpful, but probably also to stir up conflict. Destiny
 is well aware of this dynamic, as it goes both ways–if you talk about
 him, he will know almost immediately.)
 
@@ -4791,15 +4789,15 @@ Lav: *Hey *
 *I don’t want to stress you out, doesn’t need to happen immediately,
 just whenever you have a free night. 💕*
 
-Steven*: Yeah sure thing, I'm free tonight or tomorrow night if you want
-matey*
+Destiny*: Yeah sure thing, I'm free tonight or tomorrow night if you
+want matey*
 
 *Lav: Tonight works, what time do u end stream again sorry I always
 forget*
 
 *I definetly \[sic\] want to milk you*
 
-Steven: 🙂
+Destiny: 🙂
 
 Lav: *I appreciate you saying I’m not dumb. I don’t appreciate you
 calling me an ABUSER.*
@@ -4809,11 +4807,11 @@ calling me an ABUSER.*
 That night, things came to a head in a stream that would later be titled
 "Aba CONFRONTS Destiny, Triggers MELTDOWN 13 Person Debate | CIVIL WAR."
 
-I had plans to speak with Steven about the power dynamics in his
+I had plans to speak with Destiny about the power dynamics in his
 relationships with his orbiters, but I joined because I saw Lav getting
 dogpiled in a discussion about how dumb she is.
 
-Steven, ostensibly defending her from Aba, said, "I would say that
+Destiny, ostensibly defending her from Aba, said, "I would say that
 Sneako does worse than Lav because at least, at the end of the day, Lav
 is like, "Yeah, maybe I'm dumb. And maybe I'm not thinking this through,
 and maybe I'm too aggressive. And at least she'll admit it, even if I
@@ -4832,7 +4830,7 @@ Lav said, "You'd rather me not acknowledge that I have shortcomings."
 Aba replied, "I would rather you not have conversations if you don't
 think."
 
-Steven said, "\[...\] For you it sounds like you're taking
+Destiny said, "\[...\] For you it sounds like you're taking
 accountability by saying 'I don't know.' But for Aba, it feels like
 that's a way of avoiding accountability by making extreme statements and
 then saying, 'I don't know.'"
@@ -4852,7 +4850,7 @@ even by responding to his criticisms–it's a weird situation where it's
 like, everybody who has an opinion on whether Lav is full of shit should
 just come in and start talking about it."
 
-Aba left, and we talked about our grievances with Steven. Lav said she
+Aba left, and we talked about our grievances with Destiny. Lav said she
 wished he'd express (public) remorse about calling her a dumb bitch, and
 he said he never would.
 
@@ -4864,7 +4862,7 @@ when it then just becomes an echo chamber of  everyone who wants to
 ingroup signal about hating me, that just becomes a little masturbatory
 and I don't think that you should allow something like that.
 
-Steven: I mean, everybody already hates you on my subreddit, so I don't
+Destiny: I mean, everybody already hates you on my subreddit, so I don't
 think that changed things much, so.
 
 Lav: I definitely saw a difference.
@@ -4872,11 +4870,11 @@ Lav: I definitely saw a difference.
 Me: Lav calling Chaeiry a dumb bitch doesn't have the same effect as you
 calling Lav a dumb bitch because you have way, way more power than her.
 
-Steven: I don't care. If somebody's going to come onto my stream–
+Destiny: I don't care. If somebody's going to come onto my stream–
 
 Me: I know, that's my whole problem–
 
-Steven: No, no, no, no, hold on. If you think you care about that, then
+Destiny: No, no, no, no, hold on. If you think you care about that, then
 you're engaging in a social dynamic that is unsustainable, and is never
 going to be agreed to by anybody else in any other circumstance, ever.
 If you want to come and engage on my platform, you're totally welcome to
@@ -4888,24 +4886,24 @@ way, she's just a small streamer.
 
 Me: No–
 
-Steven: Yeah, that is exactly what you said. Now, if you want to restate
-what you said, that's fine. Hold on. No, no, no, you can't just say no,
-you didn't say that, you exactly said–let me repeat verbatim–you said
-"Destiny, when you call Lav this name, it is a much different effect
-than when Lav calls Chaeiry that name." You're arguing for a different
-type of treatment because of the size or reputation of the two figures.
-And I'm telling you that that is something–
+Destiny: Yeah, that is exactly what you said. Now, if you want to
+restate what you said, that's fine. Hold on. No, no, no, you can't just
+say no, you didn't say that, you exactly said–let me repeat verbatim–you
+said "Destiny, when you call Lav this name, it is a much different
+effect than when Lav calls Chaeiry that name." You're arguing for a
+different type of treatment because of the size or reputation of the two
+figures. And I'm telling you that that is something–
 
 Me: I'm telling you that I think you're abdicating your responsibility.
 
-Steven: So Lav doesn't have that responsibility? Why? 
+Destiny: So Lav doesn't have that responsibility? Why? 
 
 Me: \[...\] Because you are in charge of the community. They're all your
 fans, it's playing to a much larger audience of your fans than anybody
 else's.
 
-Steven: It doesn't matter. Lav is still contributing to the community in
-that conversation the same way that I am.
+Destiny: It doesn't matter. Lav is still contributing to the community
+in that conversation the same way that I am.
 
 Me: She is, but there's a different effect. When you call someone a dumb
 bitch, it has a way different effect on the person you're saying it to
@@ -4926,7 +4924,7 @@ Me: I don't think Lav's smarter than Steven. I don't agree to the
 narrative that Lav is dumb. \[...\] Steven and Lav are both very
 intelligent people.
 
-Steven: Okay, that's because Max is gonna have some incredibly esoteric
+Destiny: Okay, that's because Max is gonna have some incredibly esoteric
 definition of dumb– \[...\] Do you think that she's gonna be smarter
 when she's 30 years old than she is now or would you not say smarter?
 
@@ -4936,13 +4934,13 @@ Lav: I would hope so.
 
 Me: Lav is going to be smarter? I don't know. She'll be wiser.
 
-Steven: Okay, I just wanted to get it out there then that you're totally
-randomly using words, but okay, go for it. Now make your point.
+Destiny: Okay, I just wanted to get it out there then that you're
+totally randomly using words, but okay, go for it. Now make your point.
 
 Me: I'm not randomly using words. I'm saying that I think if you both
 took an IQ test, I think maybe you would–
 
-Steven: No one here is talking about IQ tests. And she's got Ashkanazi
+Destiny: No one here is talking about IQ tests. And she's got Ashkanazi
 fucking Jewish blood so it's not fair to compare us, okay? I'm working
 on some Hispanic shit, I'm literally debuffed at birth.
 
@@ -4992,15 +4990,13 @@ stupid, I don't get it. \[...\]
 Lav: So it's in the eyes of the audience who sees Steven as \[...\] the
 person that they watch on stream every day, and we are like, orbiters.
 
-Steven: I don't have that much sway necessarily over their opinions
+Destiny: I don't have that much sway necessarily over their opinions
 about you guys. \[...\] If that was the case, Lav, my community wouldn't
 shit on you relentlessly when I was unbelievably charitable to you for a
 long time. \[...\] It seems like if I have a negative reaction to you,
 everything negative on the sub\[reddit\] all of a sudden becomes my
 responsibility when it could have been anything that you could have
 possibly said.
-
-\(5\)
 
 Me: \[...\] All I'm saying is I want you to acknowledge the power
 differential and keep it in mind when you're talking to us.
@@ -5019,8 +5015,8 @@ differential should be acknowledged. And I think that Steven, what I
 plead with you to do is to think about and acknowledge the power
 differential– 
 
-Steven: That's not what you're asking, don't lie. I know there's a power
-differential to some extent. Of course. You're not asking me to
+Destiny: That's not what you're asking, don't lie. I know there's a
+power differential to some extent. Of course. You're not asking me to
 acknowledge it, you're asking me to change a behavior. Get to what
 you're actually asking for. \[...\]
 
@@ -5029,7 +5025,7 @@ on your stream, don't compare that person to you. Don't defend your
 behavior by comparing it to an orbiter's behavior. It's like, totally
 unacceptable to me. You shouldn't do that.
 
-Steven: And that's good, and I totally disagree with you. I don't think
+Destiny: And that's good, and I totally disagree with you. I don't think
 that just 'cause somebody \[is a\] smaller streamer they can get away
 with anything they want. \[...\] So if somebody's gonna be on here and
 they're gonna call somebody a bitch a million times, I'm gonna call them
@@ -5040,14 +5036,14 @@ call people a bitch, I'm saying you can't. And the reason you can't is
 not the same reason that Lav can't, so it may be true that both of you
 shouldn't, but it's not the same reason.
 
-Steven: Okay, I disagree, but I understand what you're saying. I just
+Destiny: Okay, I disagree, but I understand what you're saying. I just
 totally disagree. \[...\] I'm okay with rolling around in the mud. But
 if you're gonna roll around in the mud, I'm gonna roll around with you.
 That's it. But you're saying I can't because I'm too big for the pigpen.
 
 Me: Yes.
 
-Steven: And I disagree. If somebody else wants to do it on my stream,
+Destiny: And I disagree. If somebody else wants to do it on my stream,
 fine. We can get a little bit more rowdy if you want to do that. \[...\]
 
 \[...\]
@@ -5055,12 +5051,10 @@ fine. We can get a little bit more rowdy if you want to do that. \[...\]
 Pxie, who I'd never talked to before, told me I sounded entitled.
 Destiny then summarized her argument.
 
-\(6\)
-
-Steven: You're doing this thing where you're like, "just because I don't
-make a formal agreement with you doesn't mean that I can't have some
-forms of boundaries," which everybody here would agree, you don't have
-to make a formal agreement with somebody to have some form of
+Destiny: You're doing this thing where you're like, "just because I
+don't make a formal agreement with you doesn't mean that I can't have
+some forms of boundaries," which everybody here would agree, you don't
+have to make a formal agreement with somebody to have some form of
 boundaries. But you're not talking about a boundary like a friendship
 boundary, it seems like you're extending that to almost like a form of
 professional boundary. You're talking about,   
@@ -5072,10 +5066,10 @@ assumed. Otherwise you have a feeling of entitlement that isn't
 justified. That sounds like what Pxie's argument was.
 
 Lav and I continued to argue with the others about whether orbiter
-relationships with Steven count as professional relationships, and
+relationships with Destiny count as professional relationships, and
 whether it's reasonable to have any professional boundaries or
 expectations within those relationships. (Ironically, the conversation
-itself netted Steven 430,000 monetized views.)
+itself netted Destiny 430,000 monetized views.)
 
 Things came to a head when Lav brought up Ana.
 
@@ -5091,8 +5085,8 @@ Lav: I think a perfect example of this is the Ana situation.
 
 Dan cackled.
 
-Steven: I'm actually about to actually nuke you from orbit. Lav, this is
-one of the things where you're too young and actually stupid to even
+Destiny: I'm actually about to actually nuke you from orbit. Lav, this
+is one of the things where you're too young and actually stupid to even
 begin to comment on. If you do this, I'm going to actually lose my shit.
 Please stop. I already saw your clips talking about it. I will lose my
 mind if you try to make an example of this. I'll actually lose–I already
@@ -5111,23 +5105,24 @@ Me: \[...\] I just want it to be acknowledged that when Lav says "hey, I
 think you mistreated this person really publicly and I want to press you
 on it," his first response was "I will cut ties with you."
 
-Steven: I have the right to do that. \[...\]
+Destiny: I have the right to do that. \[...\]
 
 I argued that, while each instance of him shutting down criticism might
 not be abusive on its own, the pattern was disturbing.
 
-Steven: You're so excited and so happy to talk about people's boundaries
-and stuff in other circumstances, but if I want to draw a strong
-boundary here, like, if you do this, I'm done completely–I'm not allowed
-to have that boundary because of the position that I've assumed, as I
-guess, the de facto psychological rape victim, because I'm all of your
-bosses that I never agreed to be. That's pretty insane to me, but okay.
+Destiny: You're so excited and so happy to talk about people's
+boundaries and stuff in other circumstances, but if I want to draw a
+strong boundary here, like, if you do this, I'm done completely–I'm not
+allowed to have that boundary because of the position that I've assumed,
+as I guess, the de facto psychological rape victim, because I'm all of
+your bosses that I never agreed to be. That's pretty insane to me, but
+okay.
 
 I said that shutting down feedback makes relationships inherently more
 abusive.
 
 Dan, still stuck on the mention of Ana, asked Lav to explain what her
-criticisms of Steven were.
+criticisms of Destiny were.
 
 Lav: \[...\] I don't know, I think that there were obviously–I think
 that you think that there are better ways that you could have handled
@@ -5135,34 +5130,32 @@ that. I wasn't bringing that up as a gotcha. Something that
 
 you haven't–
 
-Steven: I don't think there's a single thing I could have done
+Destiny: I don't think there's a single thing I could have done
 differently. Wrong.
 
 Me: Okay, that seems like an extreme statement.
 
 \[...\]
 
-Steven: The problem that I had was you, on your stream last night, said,
-"Oh, she's like a totally normal person."
+DestinyDestiny: The problem that I had was you, on your stream last
+night, said, "Oh, she's like a totally normal person."
 
 Lav: No, I said that she was obviously triggered by something.
 
-Steven: Hold on. Did you not say that she's just a normal person?
+Destiny: Hold on. Did you not say that she's just a normal person?
 
 Lav: I think in her everyday life, she is normal.
 
-Steven: Dude, you are a professional dancer.
+Destiny: Dude, you are a professional dancer.
 
 Dan: Snaky, is the term.
 
 \[...\]
 
-\(9\)
-
 Dan: Just to be clear–you said that she was a good person, and she was
 correct in her assumptions of what she said about Steve.
 
-Steven pulled up the clip in question, where Lav was responding to an
+Destiny pulled up the clip in question, where Lav was responding to an
 audience member who warned her against talking about Ana, lest she "go
 off" again.
 
@@ -5173,25 +5166,25 @@ about her." 
 Lav: Like what? I literally told you exactly what I said. Like what? You
 got me.
 
-Steven: What is the implication? I don't understand–
+Destiny: What is the implication? I don't understand–
 
 Lav: What the fuck implication–I said don't come into my stream talking
 shit about Ana.
 
-Steven: When you point to a conflict between two people, and you say on
+Destiny: When you point to a conflict between two people, and you say on
 one side, "I think that person is incredibly normal. Steven just
 triggered her, but she's super normal and great." What do you think is
 the implication there?
 
 Lav: You're a trigger for her.
 
-Steven: What does that mean? Who was in the wrong?
+Destiny: What does that mean? Who was in the wrong?
 
 Dan: You were in the wrong! 
 
 Lav: That's not how I think! That's how you think!
 
-Steven: I just want you to say that while you're on here saying
+Destiny: I just want you to say that while you're on here saying
 "Destiny, you need to have the greatest responsibility in the world of
 mind-controlling your whole audience and protecting every single
 person," and then when it comes to Lav on stream, it's like "How am I
@@ -5202,16 +5195,16 @@ Lav: I'm sorry, that is fully not what I fucking did. \[...\] And also
 to say that 11,000 people watching is the same thing as 200 people
 watching?
 
-Steven: It is, because you're making a comment about me and that's going
-to reverberate around my community.
+Destiny: It is, because you're making a comment about me and that's
+going to reverberate around my community.
 
 Dan: Mm-hmm.
 
 Lav: The comment I made about you is just that you triggered her? Come
 the fuck on. 
 
-Steven: Somebody triggered somebody else. Where does the responsibility
-generally lie?
+SteveDestinyn: Somebody triggered somebody else. Where does the
+responsibility generally lie?
 
 Dan: The trig-ee.
 
@@ -5228,7 +5221,7 @@ Dan: But it was his fault.
 
 Lav: There was an action that was nobody's fault.
 
-Steven: It was nobody's fault! Oh, Hallelujah!
+Destiny: It was nobody's fault! Oh, Hallelujah!
 
 Dan: This is why, sorry, I'd say this is snaky behavior.
 
@@ -5240,7 +5233,7 @@ person." There's no "she's an insane, crazy stalker who can't let this
 go." I don't talk about her that way, and my community doesn't talk
 about her–
 
-Steven: Because I don't think Stardust acted that way. She definitely
+Destiny: Because I don't think Stardust acted that way. She definitely
 made a huge mistake, and it was definitely cringey so you're definitely
 right to call her on that. But–
 
@@ -5248,39 +5241,39 @@ Me: Stardust tweeted out a video of me exposing my stomach and then said
 it was my pubic hair and then blurred it so that you couldn't see what
 it was.
 
-Steven: Yeah, that's really bad, but that's far different than one to
+Destiny: Yeah, that's really bad, but that's far different than one to
 two years of extra online accusations.
 
 Me: Okay, I'm not saying I'm absolving her. I'm just saying that in the
 way I talk about people, and the way people are defined on my stream,
 there doesn't have to be a bad guy.
 
-Steven: Okay, well, in my stream, when Ana like one week ago was saying
+Destiny: Okay, well, in my stream, when Ana like one week ago was saying
 I sexually abused her, I'm gonna go ahead and say there's a bad guy
 there. Okay, I think I might have a right to do that.
 
 Me: Well Stardust a week ago was saying I sexually abused her. And I'm
 saying you don't have to do that.
 
-Steven: That's great. If Stardust said that about you after two years of
-stalking and harassing you, then I would say you probably could call
+Destiny: That's great. If Stardust said that about you after two years
+of stalking and harassing you, then I would say you probably could call
 that kind of a crazy person.
 
 Me: I know I could.
 
-Steven: If you don't want to that's fine. But that's your platform.
+Destiny: If you don't want to that's fine. But that's your platform.
 That's what you can do on your implant.
 
 Me: \[...\] What Lav is saying is that there doesn't have to be an
 explanation that either you or Ana is a mentally ill terrible person.
 
-Steven: There kinda needs to be because if both sides are making strong
+Destiny: There kinda needs to be because if both sides are making strong
 claims, for you to just sit in the middle, like obviously delegitimizes
 one side more than the other.
 
 Lav: I think you're thinking like, content-wise.
 
-Steven: No! I hate you! I hate that you just said that. \[...\] I'm
+Destiny: No! I hate you! I hate that you just said that. \[...\] I'm
 sorry, I don't hate you. \[...\] It's not about content. Okay, if let's
 say that there was a scenario where one person locked somebody in a
 basement for five years and refused to feed them and beat the shit out
@@ -5327,7 +5320,7 @@ After the stream, Lav DMed Steven:
 Lav: *AM I MISSING somethihng with the ana stuff i didnt realize it was
 so big*
 
-Steven: *SHE*
+Destiny: *SHE*
 
 *STALKED ME*
 
@@ -5360,8 +5353,6 @@ Diary."
 
 Speaking softly and sitting in her darkened living room, she said:
 
-\(1\)
-
 "I have spent the day downloading, deleting Twitter from my phone,
 redownloading it, deleting Reddit from my phone, redownloading it. It is
 so hard to not keep looking. On one hand I'm like, okay, what can I
@@ -5371,24 +5362,18 @@ make everyone love me? How do I stop the bad bad bad bad?"
 
 \[...\]
 
-\(2\)
-
 "Everyone always says, 'She's never been called out on her shit, that's
 why she's taking it so hard, she's lived such a privileged life.' And I
 don't owe you an explanation, or I don't owe you any personal
 information, but I will say this. My mother is an insecure narcissist.
-And I became
-
-the scapegoat. I became the problem, the bad thing that was poisoning
-the family. They sent me away when I was 14, pretended to have just one
-kid while I was gone for two years at my residential treatment center.
-And before that was years of neglect and abuse. Everything was my fault.
-I was evil. I was manipulative. Even if I was doing something like 'Mom,
-please
-
-stop doing this to me, stop hurting me,' in whichever way she was
-hurting me. Whether it be actually physically hurting me or emotionally
-hurting me when she was on drugs or something.
+And I became the scapegoat. I became the problem, the bad thing that was
+poisoning the family. They sent me away when I was 14, pretended to have
+just one kid while I was gone for two years at my residential treatment
+center. And before that was years of neglect and abuse. Everything was
+my fault. I was evil. I was manipulative. Even if I was doing something
+like 'Mom, please stop doing this to me, stop hurting me,' in whichever
+way she was hurting me. Whether it be actually physically hurting me or
+emotionally hurting me when she was on drugs or something.
 
 "Or there was this one time especially that I was having an emotional
 breakdown, I think because I wouldn't go to school, I couldn't go to
@@ -5409,31 +5394,32 @@ yourself to manipulate me. You're starving yourself to manipulate me.'
 Everything was–every inward turmoil I felt–was something that was done
 to her."
 
-October 27, 2022: Aba called in to Steven's stream to, while doing an
+October 27, 2022: Aba called in to Destiny's stream to, while doing an
 impression of me, confront him about the ethics of bringing mentally ill
 people like Lav and me on stream–not out of concern for our well-being,
 but because it sets a bad example for his audience, who should learn to
 avoid people like us.
 
-He asked Steven to give a rebuttal.
+He asked Destiny to give a rebuttal.
 
-Steven: So for the first part that has to do with bringing quote-unquote
-mentally ill people on stream for their protection. If I feel like the
-person possesses sufficient adult faculty such that they can make their
-own decisions, I'm not going to superbaby them. So for instance, there
-have been people that I've dealt with in the past who it's like, okay,
-maybe this person doesn't need to be coming on stream anymore because
-they don't possess the necessary faculty to keep themselves safe. For
-people like Lav and mrgirl, they're both healthy, quote-unquote, adults,
-they should be able to make their own decision\[s\] about what's healthy
-for them and what's not healthy for them. \[...\] They're big boys, big
-girls, and the stakes for them are relatively low. If it got to the
-point where mrgirl or Lav started DMing me or making statements like, "I
-think I'm gonna kill myself, or I'm feeling super suicidal or stuff,"
-then I might intervene and say, "Okay, well, I'm no longer treating you
-as an adult human, I'm going to treat you as a child and tell you you
-can't do this anymore, because you clearly can't engage in a level
-that's emotionally healthy for you or psychologically healthy for you." 
+Destiny: So for the first part that has to do with bringing
+quote-unquote mentally ill people on stream for their protection. If I
+feel like the person possesses sufficient adult faculty such that they
+can make their own decisions, I'm not going to superbaby them. So for
+instance, there have been people that I've dealt with in the past who
+it's like, okay, maybe this person doesn't need to be coming on stream
+anymore because they don't possess the necessary faculty to keep
+themselves safe. For people like Lav and mrgirl, they're both healthy,
+quote-unquote, adults, they should be able to make their own
+decision\[s\] about what's healthy for them and what's not healthy for
+them. \[...\] They're big boys, big girls, and the stakes for them are
+relatively low. If it got to the point where mrgirl or Lav started DMing
+me or making statements like, "I think I'm gonna kill myself, or I'm
+feeling super suicidal or stuff," then I might intervene and say, "Okay,
+well, I'm no longer treating you as an adult human, I'm going to treat
+you as a child and tell you you can't do this anymore, because you
+clearly can't engage in a level that's emotionally healthy for you or
+psychologically healthy for you." 
 
 A few minutes later, Aba admitted that he's addicted to hate-watching
 Lav. "Bruv, bruv. I'm bonding with the other nerds in chat because of
@@ -5442,13 +5428,13 @@ sitting here being like, man, remember when you called her a dumb
 \[bitch\]? \[...\] And then I understood the viewer's experience, and I
 was like, I understand why they all got so hard off of that."
 
-Steven replied, "Yeah."
+Destiny replied, "Yeah."
 
-October 28, 2022: On stream, I gave Steven an ultimatum–either guarantee
-your orbiters the right to defend themselves against dogpiles, or I'm
-leaving the orbit. Steven refused, and I walked.
+October 28, 2022: On stream, I gave Destiny an ultimatum–either
+guarantee your orbiters the right to defend themselves against dogpiles,
+or I'm leaving the orbit. Destiny refused, and I walked.
 
-October 29, 2022: Lav joined a stream with Steven, Dan, Darius, and
+October 29, 2022: Lav joined a stream with Destiny, Dan, Darius, and
 NotSoErudite.
 
 Dan: So why are you here, Lav? Because last I checked, you were taking a
@@ -5474,13 +5460,13 @@ in \[an\] emotional place right now. And I also think that with time,
 honestly, I trust that Steven will also come around to what Max has
 said.
 
-Steven: Oh! Absolutely not!
+Destiny: Oh! Absolutely not!
 
 Lav: What are your biggest grievances with what he said? What are the
 biggest things that you disagree with?
 
-Steven: The idea that I need to take some employer-employee relationship
-with the people that hang out in my community is–
+Destiny: The idea that I need to take some employer-employee
+relationship with the people that hang out in my community is–
 
 Lav: I didn't necessarily agree with that. \[...\] This is my read,
 Steven, of you. And I could be wrong, but I think that when you say that
@@ -5491,29 +5477,29 @@ think that you're smart enough to understand how someone feels, but I
 don't think that you really feel it with them. So when a friend is
 coming to you–
 
-Steven: What's the point of this distinction?
+Destiny: What's the point of this distinction?
 
 Lav: Because when a friend is coming to you and is begging you to be
 more empathetic to them, you're saying, "Okay, I understand why you feel
 this way, I just don't care."
 
-Steven: Yeah, so oftentimes, when people are asking for empathy–
+Destiny: Yeah, so oftentimes, when people are asking for empathy–
 
 Lav: But then you say, "I have really high empathy levels," and then you
 get mad at me when I say that you have low empathy levels.
 
-Steven: Yeah, I understand. That's because people like you don't
+Destiny: Yeah, I understand. That's because people like you don't
 understand what empathy means. Or people–okay, stop.
 
 Lav: No–
 
-Steven: Wait, no, I'm sorry, hold on, wait! I got triggered because you
+Destiny: Wait, no, I'm sorry, hold on, wait! I got triggered because you
 were phrasing something aggressively, but I'm not going to phrase my
 response aggressively, I'm sorry. Okay, give me a second. Okay.
 
 Lav: I said that I could be wrong.
 
-Steven: No, no, you just your phrasing is very aggressive but that's
+Destiny: No, no, you just your phrasing is very aggressive but that's
 okay, I'm going to be the bigger person. Okay. Oftentimes, when people
 say they want somebody to be empathetic towards them, that's not really
 what they mean. What they mean is, "I want that person to agree with
@@ -5531,7 +5517,7 @@ like "fuck, that sucks, I'll be maybe more on guard about it." I mean,
 even though you did literally exactly what I wanted, which is like you
 cracked down on like, more ironic misogyny–
 
-Steven: Hold on–to be clear, wait, wait. \[...\] I need you to
+Destiny: Hold on–to be clear, wait, wait. \[...\] I need you to
 understand something, okay, very, very, very clearly. I will never
 change the way that I moderate my community for you. If you're giving me
 brownie points for that–I'm not, okay? I wasn't doing that to make you
@@ -5540,7 +5526,7 @@ like, "Oh, well, Lav would be so much happier–"
 Lav: I know you're so scared of looking like a simp, thank you for the
 clarification–
 
-Steven: No! Stop! You're–okay, \[if\] you're gonna call me a simp, I'm
+Destiny: No! Stop! You're–okay, \[if\] you're gonna call me a simp, I'm
 gonna call you the B-word. Do you understand?
 
 (Lav laughed maniacally.)
@@ -5550,21 +5536,21 @@ gonna call you the B-word. Do you understand?
 Lav: I don't know why you're so scared of that word. It's a little
 strange, a little telling.
 
-Steven: Why are you so scared of bitch?
+Destiny: Why are you so scared of bitch?
 
 Lav: I'm not that scared of bitch. I was scared–the way that you said it
 took me a little bit by surprise.
 
-Steven: Okay, the way that you just said simp—you're essentially
+Destiny: Okay, the way that you just said simp—you're essentially
 discrediting everything I'm saying.
 
 Lav \[laughing\]: Okay, I'm not discrediting anything you're saying.
 
-Steven: You're minimizing.
+Destiny: You're minimizing.
 
 Lav \[laughing\]: Okay, whatever, where were we? \[...\]
 
-Steven: No, I'm just saying that I've always been on guard for
+Destiny: No, I'm just saying that I've always been on guard for
 misogynistic things in my career. These are always things that I'm like
 actively looking at and trying to change over time and blah, blah, blah.
 It's not like "Oh my god, Lav would be so happy if I did this, let me
@@ -5599,7 +5585,7 @@ Lav: No, I never heard that. So basically, Steven's like a debater,
 right? So he's like, "No, none of this is happening. And I don't care
 what you think. And–"
 
-Steven: Hold on, just be careful. Wait, hold on. Lav, be careful that
+Destiny: Hold on, just be careful. Wait, hold on. Lav, be careful that
 you don't talk about things you're totally clueless about. I've never
 said that. Of course I see what's happening. And of course I know what's
 happening. There's a lot of people typing bad shit about him on the sub.
@@ -5626,14 +5612,14 @@ anywhere unless you're at least, not validating his worldview, but
 validating his emotions. And that's just like the trick of the trade
 with people like Max.
 
-Steven: Yeah, I'm not here for it. Like, that's just not something I
+Destiny: Yeah, I'm not here for it. Like, that's just not something I
 ever care to do.
 
 Lav: No, exactly. \[...\] You got mad at me when I said this to Max,
 though, because I was like, Steven's not gonna take care of you. He's
 not gonna do this for you.
 
-Steven: Because the way that you phrase things is incredibly one-sided.
+Destiny: Because the way that you phrase things is incredibly one-sided.
 Let me show you, okay, let me help you. Let me demonstrate, there are
 two ways that I could phrase something. Okay, here we go. "I don't think
 that you should be friends with Sam, because it seems like you need a
@@ -5644,12 +5630,12 @@ not going to teach Sam how to treat me like a normal human. I'm not
 going to teach him how to treat me politely or respectfully." That's
 what you were saying.
 
-Steven asked the audience to find the clip in question, which they did,
+Destiny asked the audience to find the clip in question, which they did,
 and played it back. In the recording, Lav said: "I'm less interested in
 teaching him how to treat me and more interested in having relationships
 with people who already know how to respect me." 
 
-Steven: Kind of makes it sound like I'm disrespectful. I think that's
+Destiny: Kind of makes it sound like I'm disrespectful. I think that's
 the easy takeaway there.
 
 Lav: Yeah, I meant, like, respect the way that I communicate the things
@@ -5668,7 +5654,7 @@ The questions of whether Destiny should recognize the power imbalances
 with his orbiters or whether he cares about their feelings were not
 revisited.
 
-November 2, 2022: Lav joined an aimless stream with Steven, Dan, Aba,
+November 2, 2022: Lav joined an aimless stream with Destiny, Dan, Aba,
 Chaeiry, Papa Gut, and Brittany from Politically Provoked.
 
 Lav stayed for about five hours, spilling about personal topics such as
@@ -5678,7 +5664,7 @@ whether she is a hypocrite for doing sex work after disparaging it, and
 her open relationship with her husband.
 
 She was lightly bullied throughout by nearly everyone. For example,
-Steven said of her confidence in her body: "I hope you enjoy it for the
+Destiny said of her confidence in her body: "I hope you enjoy it for the
 next five years and you want to kill yourself when you start to age and
 you realize looks are all you've got, Lav"
 
@@ -5688,14 +5674,14 @@ At one point, she told a story about comedian Gabriel Gundacker forcing
 her to perform analingus on him–an account she'd shared publicly in 2021
 on TikTok.
 
-Aba and Steven snickered uncontrollably in response, and Destiny
+Aba and Destiny snickered uncontrollably in response, and Destiny
 jokingly threatened to ban Aba for making light of the alleged sexual
 assault. Lav reassured them, "No, it's funny, it's funny."
 
 Aba continued to joke about it, saying: "There was a man out there
 getting his ass ate, doing terrible things."
 
-Steven: Stop. Oh my god.
+Destiny: Stop. Oh my god.
 
 Aba: Destiny, you know what's crazy? Here's something that I admitted
 that was fucked up. Even in a really fucked up situation you can
@@ -5705,17 +5691,17 @@ they killed everybody by injecting them with a bunch of mustard in their
 stomach and then like, eat ketchup out their ass. I'm gonna have a huge
 laugh.
 
-Steven: Jesus Christ.
+Destiny: Jesus Christ.
 
 Aba: No, no, no, I'm serious, I'm gonna laugh for a few days.
 
-Steven: I understand, but imagine one of the murder victims' family
+Destiny: I understand, but imagine one of the murder victims' family
 members was in the room.
 
 Aba: I would never do that if Lav herself didn't say she enjoyed it. So
 I think if she said she enjoyed it–
 
-Steven: You're saying she enjoyed being raped?
+Destiny: You're saying she enjoyed being raped?
 
 Aba: No, that's what she said. That's not what I said. Hold on. \[...\]
 Lav, Lav, Lav, let me make sure I understand, unless I misunderstood.
@@ -5734,7 +5720,7 @@ Lav: No, literally, no, it was low-key traumatic.
 
 Papa Gut: She was making a joke out of it. \[...\]
 
-Steven: She was coping with humor. And you turned her cope into comedy
+Destiny: She was coping with humor. And you turned her cope into comedy
 for you.
 
 Aba: Listen, listen, if she was trolling–and that wasn't clear to me so
@@ -5750,16 +5736,16 @@ that's a different discussion. I was under the understanding that she–I
 didn't know she was trolling earlier. So if she's trolling, then I'll
 own this.
 
-Steven: Oh, my God. It's just like the whole mood of the room changed.
+Destiny: Oh, my God. It's just like the whole mood of the room changed.
 
 Aba: Shut up. Destiny! You joined in. It's such a typical jujitsu move,
 where you literally added punch lines to my \[inaudible\]. And so I
 appreciate you, but you're in on this joke. You're in the credits. So if
 I'm going down, I'm dragging you down with me.
 
-Steven: I was talking about how traumatic it was, that this guy probably
-had rape training. It was a totally different circumstance. I was saying
-that this guy was a professional rapist.
+Destiny: I was talking about how traumatic it was, that this guy
+probably had rape training. It was a totally different circumstance. I
+was saying that this guy was a professional rapist.
 
 (Two weeks later, on November 16, Aba and Preach would upload a video
 about Lav to their YouTube channel with nearly two million subscribers,
@@ -5836,7 +5822,7 @@ Lav: No, this is a problem–you said two pro-Israel individuals, who are
 those pro–are you saying that because I'm Jewish? You think I'm
 pro-Israel? This is a problem, Aba.
 
-Steven: I'm pro-Israel.
+Destiny: I'm pro-Israel.
 
 Lav: What a strange thing to assign to an American Jewish person.
 \[...\] It's not strange, but what it is, is it's fucked up. This is
@@ -5853,8 +5839,7 @@ the black people want you to shut up.
 Lav: Aba, you're a piece of shit. You're an antisemitic piece of shit.
 
 Lav received a DM from Steven's main Discord mod, RTBALOL, who has the
-power to ban anyone from Steven's Discord server and thus from the
-stream.
+power to ban anyone from 's Discord server and thus from the stream.
 
 RTBALOL: *Just because Destiny is being a anti-confrontation beta
 doesn't mean you can just drop shit like that when we both know you
@@ -5878,25 +5863,25 @@ Lav: *he called me a zionist*
 RTBALOL: *I know what he did, and it wasn't ok. But you know your words
 mean something too.*
 
-(The previous day, RTBALOL had posted in Steven's public chat: *LAV THE
+(The previous day, RTBALOL had posted in Destiny's public chat: *LAV THE
 CONVERSATION DESTROYER CONGRATS YOU STUPID FUCKING LOSER GO FUCKING TAKE
 SOME MORE NOT NUDES TO POST TO YOUR DAMN TWITTER AT LEAST SOMEONE ENJOYS
 THAT, BECAUSE ALL YOU DOING IS BEING A DOWNER ON THIS CONVO*
 
-When Lav sent Steven a screenshot of the chat message, Steven replied:
+When Lav sent Destiny a screenshot of the chat message, he replied:
 *THAT'S RTBA HE IS HIS OWN PROUD BEAR TALK TO HIM*
 
-Lav sent back a question mark, to which Steven did not respond.)
+Lav sent back a question mark, to which Destiny did not respond.)
 
 November 7, 2022: Lav and I did a stream together that was supposed to
 be about misogyny, but quickly turned into a heart-to-heart about what
-we'd experienced during our time in Steven's world.
+we'd experienced during our time in Destiny's world.
 
 I told her that becoming a father figure to her had made it crystal
-clear to me that I needed to leave Steven's orbit. Seeing myself get set
-up to be dogpiled again and again hadn't been enough to push me over the
-edge, but seeing it happen to her was unbearable, and I would not enable
-her abuse any more than I already had.
+clear to me that I needed to leave Destiny's orbit. Seeing myself get
+set up to be dogpiled again and again hadn't been enough to push me over
+the edge, but seeing it happen to her was unbearable, and I would not
+enable her abuse any more than I already had.
 
 Lav cried and said she appreciated my kindness, despite it feeling weird
 because she wasn't used to it.
@@ -6436,11 +6421,11 @@ these are already men who struggle with women.*
 
 *Nobody will care.*
 
-November 9, 2022: Steven reacted to my November 7 talk with Lav in a
+November 9, 2022: DestinyTo reacted to my November 7 talk with Lav in a
 stream that would be uploaded with the title "Destiny Reacts To MrGirl
 And Lav Crying Together."
 
-When Steven heard me tell Lav I'd left his community for her, he said,
+When Destiny heard me tell Lav I'd left his community for her, he said,
 "I'm not saying that this is necessarily abusive, but, 'I left that
 community so that you could be smart enough to leave that community
 \[...\],' that seems a little weird, but okay. I don't know about that
@@ -6455,24 +6440,24 @@ Lav: Yeah. I do like Steven a lot.
 
 Me: Me too. He's a lovable guy.
 
-Steven, reacting, said: "But I'm an abuser."
+SteDestinyven, reacting, said: "But I'm an abuser."
 
-After a silence, noticing my eyes were wet, Steven said, "How is he
+After a silence, noticing my eyes were wet, Destiny said, "How is he
 crying? Did I miss something?"
 
 In the video, I told Lav, "You don't have to leave."
 
-Steven cackled, and said, "Okay, hold on. I am so sorry to say this. I
+Destiny cackled, and said, "Okay, hold on. I am so sorry to say this. I
 don't know if Melina's watching right now. Is Melina here?"
 
 Melina was indeed watching. (Earlier she'd written in the audience chat:
 *I think I hate lav more and more everyday and I always think it can’t
 be possible to hate her more*)
 
-Now she wrote that she was still there, and asked why Steven wanted to
+Now she wrote that she was still there, and asked why Destiny wanted to
 know.
 
-Steven saw her message and said, "Okay, nevermind. I'll just keep
+Destiny saw her message and said, "Okay, nevermind. I'll just keep
 watching. \[...\] I don't want to give away my manipulation tactics,
 okay, I don't want to give away my abuser tactics."
 
@@ -6485,7 +6470,7 @@ In fact, he'd already used the tactic in that very stream ("I'm not
 saying that this is necessarily abusive, but…"), and, ironically, was
 about to do it again to sell his accusation that I was doing it.
 
-Drawing a diagram of the manipulation tactic in MS Paint, Steven said:
+Drawing a diagram of the manipulation tactic in MS Paint, Destiny said:
 "If you're trying to convince somebody to do something that they're kind
 of half in on, that you kind of want them to do, the goal–usually when
 people are trying to seal the deal, if this is like \[...\] acceptance,
@@ -6521,20 +6506,20 @@ responsibility."
 
 A viewer wrote in the chat: *how often do you find yourself doing this*
 
-Steven continued, "How often do you find yourself doing this? Never
-anymore. But this is a common early twenties, mid-twenties Steven
+Destiny continued, "How often do you find yourself doing this? Never
+anymore. But this is a common early twenties, mid-twenties Destiny
 behavior. This is a super easy form of manipulation 101 \[...\]. It's
 such an effective way of shirking all responsibility for a decision and
 it's a really effective way of making the other person think that
 they're having an idea that is more their own than it actually is.
-Sorry, it was really funny for \[Max\] to pull back there. He might not
-be doing that, by the way. I might just be–that was all bullshit that I
+Sorry, it was really funny \[Max\] to pull back there. He might not be
+doing that, by the way. I might just be–that was all bullshit that I
 said, and none of that meant anything and I'm just a memer. But that's
 kind of what it felt like."
 
 November 11, 2022: If you don't know this by now, Ana and Lav have a
 tendency to blurt things out. I'd already been moving as quickly as I
-could to secure as much evidence against Steven as possible before he
+could to secure as much evidence against Destiny as possible before he
 could scare people out of talking to me, but I knew time was pretty
 limited.
 
@@ -6542,13 +6527,13 @@ Not only did it feel wrong to tell these women to keep silent, I knew it
 was pointless and would only make me feel bad when they spilled their
 guts anyway.
 
-All in one day, Ana did a stream about Steven, Lav did a stream about
-Steven, and Shaelin, my girlfriend, did an interview with ChudLogic (who
-was my friend at the time) in which she called out his unethical
+All in one day, Ana did a stream about Destiny, Lav did a stream about
+Destiny, and Shaelin, my girlfriend, did an interview with ChudLogic
+(who was my friend at the time) in which she called out his unethical
 treatment of me and his other orbiters.
 
 Lav streamed her live reaction to Shaelin's interview and felt empowered
-to criticize Steven.
+to criticize Destiny.
 
 One chatter asked her: *What do you think about Destiny trying to sleep
 with every woman he brings on?*
@@ -6562,13 +6547,13 @@ Weinstein–Lav flatly denied it, yet doubled down: "I did not allude to
 him being a Harvey Weinstein. But if the shoe fuckin' fits. I didn't
 even say those fuckin' words but if you're thinking about it."
 
-Lav revealed that Steven was still sexting Ana, and also that she and
-Steven had a sexual relationship. (She later stated on Twitter that they
-didn't have sex. When asked for clarification, Lav replied, "He serviced
-me." The 350-upvote post about this tweet was removed from Destiny's
-subreddit.)
+Lav revealed that Destiny was still sexting Ana, and also that she and
+Destiny had a sexual relationship. (She later stated on Twitter that
+they didn't have sex. When asked for clarification, Lav replied, "He
+serviced me." The 350-upvote post about this tweet was removed from
+Destiny's subreddit.)
 
-Steven's fans alerted one another about the stream in his offline chat,
+Destiny's fans alerted one another about the stream in his offline chat,
 Discord, and subreddit, and soon Lav was speaking to an audience of
 2,000 angry viewers.
 
@@ -6608,11 +6593,11 @@ rebuild the bridge over and over* 🦶🔫😀"
 [Archive](https://web.archive.org/web/20230310171222/https://www.reddit.com/r/Destiny/comments/ys372f/when_someone_implies_im_weinstein_when_someone/)
 
 As discussed in Ana's section of this report, I saw the hate mob forming
-around Lav and begged Ana to give me a recent screenshot of Steven
+around Lav and begged Ana to give me a recent screenshot of Destiny
 sexting her, which I thought would give Lav's claims (and my
 soon-to-be-exposed investigation) legitimacy. I got Lav and Shaelin in a
 group call with Ana and we all begged her for the proof. Ana said she
-would feel guilty for betraying Steven's trust and urged me to go
+would feel guilty for betraying Destiny's trust and urged me to go
 forward without the proof, but I thought the impact of a screenshot
 would be significantly greater than even an admission from Steven. She
 eventually agreed.
@@ -6639,7 +6624,7 @@ that the DMs were normal flirting and that she’d misused the term
 My napkin math was utterly naive and wrong. The Destiny-sphere calculus
 said the smart thing to do would be to attack Lav, and so they did.
 
-In Steven's own "I'm Nuclear" stream that day, he portrayed himself and
+In Destiny's own "I'm Nuclear" stream that day, he portrayed himself and
 Lav as victims of my manipulation.
 
 "After a few months ago, I had a tumultuous interpersonal thing that
@@ -6653,7 +6638,7 @@ months ago, she wasn't really into the whole streaming thing, so I
 didn't really think much of it. It's like, oh, random person I've spoken
 to before, whatever. And, yeah, yikes. Where do we even begin?"
 
-Steven has consistently framed me (and Lav) coming out against him as a
+Destiny has consistently framed me (and Lav) coming out against him as a
 personal betrayal. By shifting his audience's focus away from power
 differentials and ethics in professional relationships among streamers,
 he can rebrand this report as a high school yearbook of petty
@@ -6722,7 +6707,7 @@ background, basically talking to a ton of people to try to see if there
 are people that I have sexually abused or manipulated or anything like
 that."
 
-Relatively chill is not how I would describe Steven's relationship with
+Relatively chill is not how I would describe Destiny's relationship with
 Ana in the year prior to November 2022. Six months earlier, Steven had
 directed his audience to participate in harassing and doxxing Ana on
 KiwiFarms–two days after sexting her–prompting her to tell him that he'd
@@ -6757,12 +6742,12 @@ would also like for people in DGG to stop, too."
 November 8, 2022: "I just wish Destiny would stop being so abusive to me
 all the time."
 
-In Steven's hastily-formed new narrative, I was the real culprit behind
-Ana's accusations, as well as Lav's.
+In Destinyn's hastily-formed new narrative, I was the real culprit
+behind Ana's accusations, as well as Lav's.
 
 He also publicly shared the DMs between me and another content creator,
 Dooby, who I'd become friendly with since I started streaming in 2022.
-Dooby said that he'd pretended to share my concerns about Steven in
+Dooby said that he'd pretended to share my concerns about Destiny in
 order to get more information about my investigation.
 
 Me: *Hey man I didn't realize I never wrote back to this. But I have to
