@@ -6741,8 +6741,8 @@ would also like for people in DGG to stop, too."
 November 8, 2022: "I just wish Destiny would stop being so abusive to me
 all the time."
 
-In Destinyn's hastily-formed new narrative, I was the real culprit
-behind Ana's accusations, as well as Lav's.
+In Destiny's hastily-formed new narrative, I was the real culprit behind
+Ana's accusations, as well as Lav's.
 
 He also publicly shared the DMs between me and another content creator,
 Dooby, who I'd become friendly with since I started streaming in 2022.
@@ -7193,7 +7193,7 @@ of bad people that are messy and broken having messy broken
 communications–like, it's not that simple. It's actually not. Maybe on
 your side, that's all that's going on. Possibly, right? But the reality
 is like that is not all that's going on here. Like the reality is the
-way that Mac reacted to the situation isn't normal. It's not at all how
+way that Max reacted to the situation isn't normal. It's not at all how
 you treat your friends, he's acted in horrific faith. \[...\] and he's
 doing what he always fucking does. He feels hurt, he feels upset, he
 creates a narrative post hoc, and then suddenly rationalizes his emotion
@@ -10673,7 +10673,7 @@ can't say that for everyone.
 
 JebTan: I don't know Zonia to–I don't know anybody else–
 
-Shaelin: Zonia just fucking released a video suggesting that last
+Shaelin: Zonia just fucking released a video suggesting that Lav
 murdered her cat. Don't fucking talk about how Zonia's good faith,
 that's the biggest crock of shit I've ever heard. That's ridiculous.
 
@@ -11202,7 +11202,7 @@ Destiny: Yeah, I'm totally cool with that. Yeah, if she stopped talking
 to me, I'd stop talking about her. I have no reason to, yeah.
 
 JebTan: And I'm sure she knows, and I'll follow up. Because, I mean,
-that's what we've been saying this whole time. But then Shaelim came in
+that's what we've been saying this whole time. But then Shaelin came in
 and just trying to reel her back because full detachment isn't running
 her toward Max, and so Shaelin tried to come in and sort of pull the
 lifeline again, and I think it worked honestly.
@@ -12718,7 +12718,7 @@ ChudLogic: Yes, this is the thing, the criticism. The Age of the
 Gigachad, yes.
 
 Me: Yes, the worst thing for you emotionally, and your brand, is for you
-to appear soy. And calling somebody a Nazi is to soy for you, unless
+to appear soy. And calling somebody a Nazi is too soy for you, unless
 you're using it to mock another leftist. He sees that as a big fucking
 gap that he can just fly right through. And there's no resistance from
 you.
@@ -12762,7 +12762,7 @@ do a fuck ton of work to dress it up in highly lucrative ways. They work
 so much on their messaging, they work so much on undermining established
 messaging, they work so hard on presenting their ideas in the best way
 possible. And people that are in charge of disseminating true
-information basically past it out size font 10 Times New Roman, boring
+information basically paste it out size font 10 Times New Roman, boring
 as fuck, here it is, if you don't believe it we're gonna ban you from
 everything, call you a Nazi, and tell you that you're not allowed to
 talk to anybody. That's what it feels like to me. So I don't feel like
@@ -13108,7 +13108,7 @@ genuinely express how I feel sometimes."
 I directly asked him how he was feeling about the conversation and about
 Destiny and Fuentes's relationship.
 
-ChudLogic: \[...\] The way that destiny has handled it has actually been
+ChudLogic: \[...\] The way that Destiny has handled it has actually been
 pretty reasonable and pretty responsible. Now, I do share still the
 concerns about the chicken and waffles thing, sure, but I guess the
 problem I have there is even if I thought that was really bad, say,
@@ -14059,7 +14059,7 @@ members lighter tomorrow on the Subreddit. I'm just giving you a warning
 right now if you haven't deleted your post yet or changed it. If you
 criticize me, that's fine, but if you're writing some autistic shit like
 "Destiny's bad faith, weaselly, blah, blah, blah," I'm permabanning you
-and I'm not unbanning you. mrgirl's not \[unintelligble\] tonight, just
+and I'm not unbanning you. mrgirl's not \[unintelligible\] tonight, just
 giving you a heads up. There \[is\] so much unbelievably retarded shit,
 I would rather just never have you in my community. If that hurts you or
 bothers you, that's fine, but if you're the kind of person who needs to
