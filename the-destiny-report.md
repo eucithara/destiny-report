@@ -36,9 +36,9 @@ by a community member), 6% are 14-17 years old, and 75% are 25 or under.
 
 Destiny’s audience trusts him to slice through irrational political
 discourse with ice-cold utilitarian logic. They identify with him
-strongly, adopting his positions and even his speech patterns, and they
-have a reputation for harassing Destiny's ever-growing list of
-ex-friends and enemies.
+strongly, adopting his positions, his mannerisms, and they have a
+reputation for harassing Destiny's ever-growing list of ex-friends and
+enemies.
 
 This report aims to paint a broad picture of Destiny's public and
 private abuses of the substantial power afforded to him by YouTube, his
@@ -54,7 +54,7 @@ on his stream. Frequently these are women who suffer from mental health
 issues and have expressed suicidal ideations or even been hospitalized
 for suicide attempts.
 
-In 2020 Destiny himself explained why using your platform for sex with
+In 2020, Destiny himself explained why using your platform for sex with
 smaller creators is unethical, saying, "Let's say that I have a podcast,
 I got thirty thousand viewers, let's say that there's a girl that
 messages me, we talked a little bit, she really wants to be on. And I'm
@@ -128,9 +128,9 @@ DGG.”
 4\. Narrative control: Destiny’s penchant for deception and his
 astounding dedication to silencing critics makes it difficult for
 newcomers to understand how his system of content creation operates.
-Criticism is frequently banned in his subreddit, Discord, and audience
+Criticism is frequently banned in his Subreddit, Discord, and audience
 chat. Smaller streamers who leech off of his audience, referred to as
-“orbiters” (I was one of them), act as PR tentacles and will go to great
+“orbiters” (I was one of them), act as PR tentacles, going to great
 lengths to stay in Destiny’s good graces. To shut down criticism outside
 the community (or "misinformation," as he puts it) Destiny tells his
 audience "if you see something, say something."
@@ -5203,8 +5203,8 @@ Dan: Mm-hmm.
 Lav: The comment I made about you is just that you triggered her? Come
 the fuck on. 
 
-SteveDestinyn: Somebody triggered somebody else. Where does the
-responsibility generally lie?
+Destiny: Somebody triggered somebody else. Where does the responsibility
+generally lie?
 
 Dan: The trig-ee.
 
@@ -6440,7 +6440,7 @@ Lav: Yeah. I do like Steven a lot.
 
 Me: Me too. He's a lovable guy.
 
-SteDestinyven, reacting, said: "But I'm an abuser."
+Destiny, reacting, said: "But I'm an abuser."
 
 After a silence, noticing my eyes were wet, Destiny said, "How is he
 crying? Did I miss something?"
@@ -9026,9 +9026,9 @@ Lav: *Yea….by responding ti all the hate with, I’ll keep coming on.*
 
 *That’s huge.*
 
-SDestiny: *And like, the WORST thing I've done to you and potentially
-not moderate my community hard enough???? Meanwhile you're comparing me
-to Harvey Weinstein????????*
+Destiny: *And like, the WORST thing I've done to you and potentially not
+moderate my community hard enough???? Meanwhile you're comparing me to
+Harvey Weinstein????????*
 
 Lav: *Very villainous.*
 
@@ -11286,8 +11286,8 @@ with somebody that you were long distance dating for a year–
 
 Lav: I'm not going to speak to you.
 
-SteveDestinyn \[laughing\]: Okay, I'm just saying nobody would consider
-that a sexual relationship.
+Destiny \[laughing\]: Okay, I'm just saying nobody would consider that a
+sexual relationship.
 
 Zonia: Oh, come on. Why don't we try to–let's keep it all civil.
 
