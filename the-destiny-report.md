@@ -7554,7 +7554,7 @@ that Steven has sex with women that then go on his stream afterwards, or
 during, any time he's–
 
 NotSoErudite: I'm gonna, sorry, my mic got super cut out. I just wanted
-to finish addressing my conversation with love. Just to be clear, I've
+to finish addressing my conversation with Lav. Just to be clear, I've
 never quoted you on anything about the Steven stuff. The last thing I
 quoted you was on the misandry stuff, right? Which to some extent makes
 sense, that's kind of the thing I talk about. I genuinely think the idea
@@ -7632,7 +7632,7 @@ fuck.
 
 Lav: You are engaging in abhorrent behavior. Stop. You're only
 empathetic to people who are in your fucking court, Kyla? Get a fucking
-rip. Do not treat people like that. You're calling him a loser and
+grip. Do not treat people like that. You're calling him a loser and
 you're publicly embarrassing him. This is the fucking problem with being
 a fucking online streamer. You're looking for your fucking stocks to go
 up. You're looking for public favor. You're trying to see what you can
@@ -7688,8 +7688,8 @@ scrambling for something, you'll give me your hand to reach out to and
 I'll grab it, and you'll be like, "See? See, look you should just get
 off of Twitter." What the fuck?
 
-NotSoErudite: I didn't convince laugh to cry, it was after she talked
-with Lycan, and Lycan was holding her feet to the fire that she started
+NotSoErudite: I didn't convince Lav to cry, it was after she talked with
+Lycan, and Lycan was holding her feet to the fire that she started
 crying first of all, so rewrite that one.
 
 Smeth: All of the aggression came from you.
@@ -14055,23 +14055,21 @@ After I left the call, Destiny addressed his audience:
 
 "Listen guys. All of us are gonna go to sleep tonight, but not all of us
 are going to wake up in the morning. I think we might be a few hundred
-members lighter tomorrow on the subreddit. I'm just giving you a warning
+members lighter tomorrow on the Subreddit. I'm just giving you a warning
 right now if you haven't deleted your post yet or changed it. If you
 criticize me, that's fine, but if you're writing some autistic shit like
 "Destiny's bad faith, weaselly, blah, blah, blah," I'm permabanning you
 and I'm not unbanning you. mrgirl's not \[unintelligble\] tonight, just
 giving you a heads up. There \[is\] so much unbelievably retarded shit,
-I would rather just
-
-never have you in my community. If that hurts you or bothers you, that's
-fine, but if you're the kind of person who needs to be able to use like
-a, "You have to be able to call someone a Nazi or fascist blah blah
-blah," I really just don't even want you here. There's plenty of other
-political people you can watch, or you can watch me from a banned thing
-and don't interact, or you can slowly go off to other communities,
-that's fine. I super don't want you as part of my community or part of
-my whatever the fuck I'm doing. I'm just letting you know, just being
-honest. Love you guys, it's been fun, going to bed."
+I would rather just never have you in my community. If that hurts you or
+bothers you, that's fine, but if you're the kind of person who needs to
+be able to use like a, "You have to be able to call someone a Nazi or
+fascist blah blah blah," I really just don't even want you here. There's
+plenty of other political people you can watch, or you can watch me from
+a banned thing and don't interact, or you can slowly go off to other
+communities, that's fine. I super don't want you as part of my community
+or part of my whatever the fuck I'm doing. I'm just letting you know,
+just being honest. Love you guys, it's been fun, going to bed."
 
 That night, a Destiny fan of at least one year (and not a fan of mine)
 wrote what is now the 15th most-upvoted post in the past year: 
