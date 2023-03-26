@@ -932,12 +932,12 @@ I included Bob's story because it shows Destiny's willingness to use his
 platform to crush his girlfriend's best friend for personal reasons and
 then to lash out at the women who refused to be used as pawns.
 
-I also relate to this story on a personal level. Last summer, in August
-of 2022, Melina reached out to me for emotional support. She told me
-essentially the same things she'd told Bob, and asked me why Destiny
-treats her the way he does. We spoke a few times, but essentially I said
-I thought Destiny was a very guarded person and that she should discuss
-it with a therapist.
+I also relate to this story on a personal level. In August of 2022,
+Melina reached out to me for emotional support. She told me essentially
+the same things she'd told Bob, and asked why Destiny treats her the way
+he does. We spoke a few times, but essentially I said I thought Destiny
+was a very guarded person and that she should discuss it with a
+therapist.
 
 Unlike Bob, while I was pretty worried about Melina, I didn't think I
 could do much to help her, much less while sexting her (I've tried that
@@ -957,7 +957,7 @@ criticized Destiny's "repeated casual sex with no interest in an
 intimate relationship."
 
 By January of 2020 she had somewhat warmed to Destiny. She messaged him
-on Instagram and introduced herself as a graduate student in psychology.
+on Instagram, introducing herself as a graduate student in psychology.
 According to Ana, Destiny asked if she was familiar with open
 relationships. Given his open relationship with Melina, Ana took the
 question to be a sexual overture, to which she was receptive.
@@ -1044,7 +1044,7 @@ even flirtatious, but not consistently.
 Meanwhile, Destiny's fans were putting the pieces together. From Ana's
 stream chat they asked if she'd slept with Destiny during his trip. She
 giggled and said they shouldn't ask her that, which many took as
-confirmation of their suspicions.
+confirmation.
 
 Not receiving the promised attention from Destiny, Ana sent him
 Psychology Today articles about stonewalling and narcissism. She also
@@ -1061,8 +1061,8 @@ Ana burst into mocking laughter before saying: "Yeah, because we all
 know to be a good father the best thing to do is move a million miles
 away from your son–I'm gonna stop, before someone clips that shit."
 
-Someone did clip it, and on October 5, 2020, Destiny did his first Ana
-attack stream.
+Someone did, and on October 5, 2020, Destiny did his first Ana attack
+stream.
 
 "I have had some clips linked to me today. I don't normally torch
 bridges, unless other people want to do it first, in which case, fuck
@@ -1160,8 +1160,8 @@ Because Ana felt obligated to keep Destiny's secret about getting his ex
 fired from her job, his fans were clueless about the context of this
 argument.
 
-A member of Destiny's server named Linus offered a lukewarm defense of
-Destiny's vindictiveness.
+A member of Destiny's community called Linus offered a lukewarm defense
+of Destiny's vindictiveness.
 
 Linus: Wait, Ana, are there varying degrees of abuse? Like, is there a
 greater and lesser form of abuse?
@@ -1212,7 +1212,7 @@ behavior out in the clinical sense… My main observation here is that
 Destiny has behaviors that probably cause you a lot of anxiety, and your
 anxiety causes Destiny to feel a lot of stress…
 
-Linus said that Ana doesn't have enough information about Destiny's
+Linus claimed Ana didn't have enough information about Destiny's
 relationships to call his behavior abusive, and that without reaching
 out to the other people affected, which would be inappropriate, she
 can't comment on it.
@@ -1246,8 +1246,8 @@ to Destiny.
 On October 30, 2020, the student, named Drew, moderated an onstream
 conversation between Destiny and Ana.
 
-Drew quickly abandoned his goal of mutual understanding, and instead
-focused on brokering a peace treaty where the two would agree to stop
+Drew quickly abandoned his goal of mutual understanding, instead
+focusing on brokering a peace treaty where the two would agree to stop
 talking about each other in public and have no private contact
 whatsoever.
 
@@ -1291,7 +1291,7 @@ constant desperate Discord messages. In fact, every time we receive one
 from you, we laugh and laugh about how sad and pathetic you are. Our
 favorites are the ones where you write paragraphs and paragraphs and we
 just imagine you desperately waiting by the computer for a response that
-will never come. "
+will never come."
 
 Destiny laughed and said, "Dan, what the fuck is wrong with you?"
 
@@ -1320,16 +1320,15 @@ fuckin' times. That shit got crazy, hell yeah it did, and I guarantee
 you that everybody here would probably think I'm a fucking crazy
 physical abuser, too…"
 
-This was in the context of defending MrDeadMoth, a streamer who, in
-2018, hit his pregnant wife multiple times on stream after she threw
-small objects at him. Destiny did a reaction stream where he
-rationalized the violence against her, calling her an abuser and
-dismissing her chilling screams as "crocodile tears." In the stream
-chat, you can watch the mostly-male audience turn against her with
-ironic jokes ("ONE PUNCH MAN," "kill all women") and sincere
-identification of MrDeadMoth as the victim ("It sounds like she did this
-to actually ruin his stream career the way she said 'you're a woman
-beater' out loud").
+For context, this was defending MrDeadMoth, a streamer who, in 2018, hit
+his pregnant wife multiple times on stream after she threw small objects
+at him. Destiny did a reaction stream where he rationalized the violence
+against her, calling her an abuser and dismissing her chilling screams
+as "crocodile tears." In the stream chat, you can watch the mostly-male
+audience turn against her with ironic jokes ("ONE PUNCH MAN," "kill all
+women") and sincere identification of MrDeadMoth as the victim ("It
+sounds like she did this to actually ruin his stream career the way she
+said 'you're a woman beater' out loud").
 
 Ana: *Choking out is like the number one red flag for domestic abuse
 victims to get out. And you dare call yourself a victim???? You could've
@@ -1454,8 +1453,8 @@ On August 29, 2021, Destiny complained on stream that Ana was privately
 telling people that he's a dark triad abuser. 
 
 When Dan expressed dismay that Destiny was still in contact with Ana,
-Destiny said that the only way to prevent Ana from going on "constant
-hate tirades" about him is to "try to be somewhat friendly" with her.
+Destiny claimed the only way to prevent Ana from going on "constant hate
+tirades" about him is to "try to be somewhat friendly" with her.
 
 Dan said, "Oh, so you're just giving into blackmail, to be clear…
 someone's giving you shit, and you're like okay, fuck it, I can't fight
@@ -1514,8 +1513,8 @@ Destiny pledged to stop all public and private communication with Ana
 and left the call. Ana continued to criticize him.
 
 70 minutes later, Destiny returned, begging Zherka to cut Ana off.
-Zherka refused, and Destiny and Ana argued about their relationship for
-another hour.
+Zherka refused, leading to another hour-long argument about their
+relationship.
 
 Near the end, Ana asked, "If you don't want to be friends with me, why
 didn't you tell me in privately? Why didn't you just say that?"  
@@ -1614,8 +1613,7 @@ also need people to know that she's fucking insane, so I don't know what
 to do."
 
 He declared that Zherka would not be allowed to react to his streams
-anymore, or he'd file copyright claims against him, threatening his
-channel.
+anymore, threatening to file copyright claims on Zherka's channel.
 
 Destiny read aloud a DM he received from a longtime Twitter foe known as
 Squirrel: *You need to stop talking to or about Ana going forward, and
@@ -1646,11 +1644,11 @@ insanity that this is? … And now this Squirrel cunt has just tweeted
 this whole fucking manifesto about how I bring on young girls and groom
 them and shit on my stream."
 
-He also attacked a streamer named Maddycakes, after saying they had
+He also attacked a streamer named MaddyCakes, after saying they had
 squashed their beef in a private call he'd "illegally recorded."
 
 "Five days later she's in somebody else's fucking chat saying 'oh
-Destiny defends misogynists.' Okay? Fuck MaddieCakes, fuck her, fuck
+Destiny defends misogynists.' Okay? Fuck MaddyCakes, fuck her, fuck
 everything about her online. Okay, fuck this piece of shit, Jesus
 Christ. What a fucking loser, holy shit."
 
@@ -4134,7 +4132,7 @@ Destiny: *HE IS FINE*
 
 \[...\]
 
-StevDestinyen: ♥
+Destiny: ♥
 
 Lav: 💖💖
 
@@ -4380,14 +4378,14 @@ exchange for Destiny doing us the favor of bringing us on stream.
 
 I was adamant that it was not a favor–we'd been cast on an entertainment
 program and we should be treated with dignity rather than be abused. I
-told her that this defense of him made her sound like Harvey Weinstein.
+told her that this defense made him sound like Harvey Weinstein.
 
 Lav said that I needed to learn the difference between setting
-boundaries for myself and trying to control other people. I countered
-that any boundary can be described in both ways–for example, if I go
-over to someone's house, I have to be allowed to use their bathroom. If
-I'm not, then I don't want to be there. But you could also frame that as
-me "telling them how to run their household."
+boundaries for myself and trying to control others. I countered that any
+boundary can be described in both ways–for example, if I go over to
+someone's house, I have to be allowed to use their bathroom. If I'm not,
+then I don't want to be there. But you could also frame that as me
+"telling them how to run their household."
 
 I said I could live with Destiny having an advantage in all discussions
 and having more sway over the audience, but not with him banning me and
@@ -4962,7 +4960,7 @@ boss of when you can come on his stream and make money and grow your
 platform. He's the boss of you that way, but he's also in charge of the
 community's narrative about you. He controls what people think of you to
 a large degree. So if you're having a conversation with Steven offline
-and he calls you a dumb pitch, and you call him a dumb bitch, then yeah,
+and he calls you a dumb bitch, and you call him a dumb bitch, then yeah,
 blows are exchanged, nothing happens. But it's like the fucking
 President calling you a dumb bitch when he calls you a dumb bitch on
 stream. The community of people, this very large community who are very
@@ -5137,8 +5135,8 @@ Me: Okay, that seems like an extreme statement.
 
 \[...\]
 
-DestinyDestiny: The problem that I had was you, on your stream last
-night, said, "Oh, she's like a totally normal person."
+Destiny: The problem that I had was you, on your stream last night,
+said, "Oh, she's like a totally normal person."
 
 Lav: No, I said that she was obviously triggered by something.
 
@@ -5839,7 +5837,8 @@ the black people want you to shut up.
 Lav: Aba, you're a piece of shit. You're an antisemitic piece of shit.
 
 Lav received a DM from Destiny's main Discord mod, RTBALOL, who has the
-power to ban anyone from 's Discord server and thus from the stream.
+power to ban anyone from Destiny's Discord server and thus from the
+stream.
 
 RTBALOL: *Just because Destiny is being a anti-confrontation beta
 doesn't mean you can just drop shit like that when we both know you
@@ -6421,9 +6420,9 @@ these are already men who struggle with women.*
 
 *Nobody will care.*
 
-November 9, 2022: DestinyTo reacted to my November 7 talk with Lav in a
-stream that would be uploaded with the title "Destiny Reacts To MrGirl
-And Lav Crying Together."
+November 9, 2022: Destiny reacted on stream to my November 7 talk with
+Lav in a segment titled "Destiny Reacts To MrGirl And Lav Crying
+Together."
 
 When Destiny heard me tell Lav I'd left his community for her, he said,
 "I'm not saying that this is necessarily abusive, but, 'I left that
