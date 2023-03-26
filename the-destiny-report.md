@@ -2324,9 +2324,10 @@ I replied: *No. I knew you would go back to him. You're trapped just
 like I am. I've been struggling to get out of his grip for a year. I'm
 just like you and I see that now. I've been crying all day.*
 
-Two days later, on November 13, Destiny reacted live to ChudLogic panel
-discussing Lav’s abuse claims against Destiny. Ana was in ChudLogic’s
-audience chat, asking to be let on so she could speak for herself.
+Two days later, on November 13, Destiny reacted live to ChudLogic's
+panel discussing Lav’s abuse claims against Destiny. Ana was in
+ChudLogic’s audience chat, asking to be let on so she could speak for
+herself.
 
 Destiny, laughing, said, “Dude, Ana is probably mentally completely
 getting fucking destroyed right now!" A moment later, he said, “That’s
@@ -2568,7 +2569,7 @@ planned to take together, but he first warned her that he might become
 infatuated with her once the drug took effect. 
 
 Melina found this disclosure off-putting, and abruptly told him to leave
-Austin. Darius flew home the same day. (5)
+Austin. Darius flew home the same day.
 
 Upon returning, he found out he was being fired from his job. Now it was
 his turn to confess suicidal feelings to Melina, but she replied only to
@@ -2664,9 +2665,9 @@ Darius yelled: "Kill yourself you stupid sped, unironically you should
 have killed yourself the day you had the chance!" And a minutes later:
 "I have done enough to not give a fuck, and honestly–"
 
-Taybor, worried he was about to out the identity of mistress, cut him
-off: "Slow down, slow down, take a couple breaths. Let's all just–let's
-calm down, chill."
+Taybor, worried he was about to out the identity of Destiny's mistress,
+cut him off: "Slow down, slow down, take a couple breaths. Let's all
+just–let's calm down, chill."
 
 Destiny: I'm just trying not to get caught in the crossfire right now.
 
@@ -2875,7 +2876,7 @@ the previous day, and everyone inside the apartment was asleep.
 
 After seeing Denims acknowledge on her stream that things were generally
 tense, Destiny became worried that either Denims or Littleefox would
-accuse him of sexual coercion
+accuse him of sexual coercion.
 
 On October 3, 2019, in a stream that would be uploaded with the title
 "Destiny Addresses the TwitchCon 2019 Drama," Destiny painted the women
@@ -2889,7 +2890,7 @@ pretty crazy, I was busy like a motherfucker over that whole weekend.
 
 He went on to describe Littleefox as being "really anxious and needing a
 babysitter" (she had never been to a crowded convention before), which
-caused tension between Melina and Littleefox .
+caused tension between Melina and Littleefox.
 
 A chatter wrote, "Dude, what the fuck, Destiny? I'd be so fucking
 pissed."
@@ -3076,7 +3077,7 @@ Vaush's roommate and his partner at the time called for Destiny to be
 deplatformed for the comments. Twitch didn't ban Destiny, but they did
 departner him, leading to a significant loss in his income.
 
-In a September 12 stream, Destiny said, 'I'm gonna be a little bit more
+On September 12, 2020, Destiny said, 'I'm gonna be a little bit more
 forceful here I guess, since I usually let people walk all over me. I
 can't imagine like how much \[of\] a spineless disingenuous cuck you
 have to be to have a roommate and a girlfriend that are walking around
@@ -3109,7 +3110,7 @@ something rude about me, and then he'll move on and then they'll go have
 a fucking field day, and then proceed to rant about me about how I'm a
 horrible toxic individual on the subreddit. Those posts don't get
 deleted because freedom of speech, but then Trainwrecks posts get
-deleted.
+deleted.”
 
 Trihex: A former friend and podcast cohost of Destiny’s. Their
 relationship fell apart when Trihex, who is black, confronted Destiny on
@@ -3759,7 +3760,7 @@ defended her, but failed to recognize the extremely disturbing nature of
 putting the character of a potentially suicidal person on trial for
 entertainment, and then I left the stream.
 
-Cherry and Lav continued to fight about Lav's stances on sex work, with
+Chaeiry and Lav continued to fight about Lav's stances on sex work, with
 Destiny half-moderating and half-cross-examining, leading to exchanges
 like this:
 
