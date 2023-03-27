@@ -145,7 +145,7 @@ can, and this allows him to fly under YouTube's radar.
 
 I'm a streamer, rapper, video essayist, and occasional writer. I've made
 provocative content all my life, but most recently I'm known for
-projects such as "The mrgirl Realdoll Review" (a disturbing and
+projects such as "The mrgirl RealDoll Review" (a disturbing and
 pornographic personal documentary about how a sex doll affected my
 relationship with my girlfriend, Shaelin), "The Gender Narrative" (a
 nonpartisan video essay about how we talk about gender), and my "Cuties"
