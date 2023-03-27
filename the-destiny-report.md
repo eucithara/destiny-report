@@ -6615,10 +6615,14 @@ thing to do.
 
 (It’s worth noting that in 2021, ChudLogic was accused of “grooming” by
 a 17-year-old he’d sexted with who’d told him she was 18. She tweeted
-out screenshots of their DMs, despite ChudLogic asking her not to for
-the sake of his career. Destiny defended ChudLogic on stream, stating
-that the DMs were normal flirting and that she’d misused the term
-“grooming.”)
+out screenshots of their DMs, despite, according to her tweets,
+ChudLogic asking her “to promise never to leake *\[sic\]* this stuff so
+his YT career can continue.” Destiny defended ChudLogic on stream,
+stating that the DMs were normal flirting and that she’d misused the
+term “grooming.”)
+
+Deleted |
+[Archive](https://web.archive.org/web/20210112224436/twitter.com/haileyorsomthn)
 
 My napkin math was utterly naive and wrong. The Destiny-sphere calculus
 said the smart thing to do would be to attack Lav, and so they did.
