@@ -1218,8 +1218,8 @@ out to the other people affected, which would be inappropriate, she
 can't comment on it.
 
 Destiny capped off the defensive triple-team by saying, "You're making
-yourself the victim. I'm the victim here," and later adding, "If you
-want to bring any friend into here and you want to let me explain what's
+yourself the victim. I'm the victim here" and later adding, "If you want
+to bring any friend into here and you want to let me explain what's
 happened, I guarantee you they will never ever side with you."
 
 Dan tried to convince Ana to leave Destiny alone, saying "I think both
@@ -2361,7 +2361,7 @@ think that they can torch buildings at 10 p.m., then at this point they
 have my fucking blessing."
 
 On March 2, 2021, Destiny invited an Omaha resident (who had criticized
-him on twitter) for a chat on stream.
+him on Twitter) for a chat on stream.
 
 Sam, a non-binary 21-year-old, was a fan of Destiny's rival streamers
 (Hasan and Vaush), and thought Destiny was poisonous for Gudgel's
@@ -2841,7 +2841,7 @@ Socdarling: What do you say?
 
 Destiny: I said thumbs down. Not good.
 
-Socdarlin: Um, I don't know. I think that, well, I think people–if
+Socdarling: Um, I don't know. I think that, well, I think people–if
 someone needs the money, they should be able to raise money.
 
 Destiny: That wasn't the question. Should people trauma dump and then
@@ -3176,11 +3176,11 @@ social circles. It really fucks with your head.*
 
 (247 upvotes)
 
-Yup. I'm black and that's always been my experience too. White people
+*Yup. I'm black and that's always been my experience too. White people
 are able to enter black spaces at will and justify their use of words
 that have historically been used to dehumanize us in any way they see
 fit. We're never allowed to enter white spaces and do the same or call
-them on it, or we're just being angry, unreasonable n words.
+them on it, or we're just being angry, unreasonable n words.*
 
 (49 upvotes)
 
@@ -11281,8 +11281,8 @@ Destiny had joined the call without Lav's knowledge.
 Destiny: Because it's cheating though, not because it's a sexual
 relationship.
 
-Lav: Yes. And what and what's cheating about it? The fact that it's a
-sexual relationship, correct?
+Lav: Yes. And what's cheating about it? The fact that it's a sexual
+relationship, correct?
 
 Destiny: If you were to tell somebody that you had a sexual relationship
 with somebody that you were long distance dating for a year–
@@ -11438,13 +11438,9 @@ Listening to the typical debate bro sparring, you'd have no indication
 that, just four months earlier, Fuentes had been subpoenaed by the House
 committee investigating the insurrection.
 
-nytimes.com/2022/01/19/us/politics/jan-6-committee-subpoena-white-nationalists.html
-
 Nor would you have an inkling that in November 2022, six months after
 the debate, Fuentes would be having dinner with Kanye West and Donald
 Trump.
-
-https://www.nbcnews.com/politics/donald-trump/story-trumps-explosive-dinner-ye-nick-fuentes-rcna59010
 
 Rose Wrist: When Nick said, "I say that we should not leave this Capitol
 until Donald Trump is inaugurated president," what did he mean by this? 
@@ -12109,16 +12105,16 @@ with Lauren Southern–originally I was supposed to play video games with
 Lauren \[...\] \[but\] I found out about her boat thing and I was like,
 "Well I don't really want to talk to her about anything except the boat
 thing." And so I'm not saying I won't talk to her. And I'm not saying I
-think you should talk to Fuentes, but the gigachad thing is the reason I
-think you shouldn't have dinner with Fuentes.  Because you and him make
-the same jokes. When you're joking around with him, you're making fun of
-progressives. And when conservatives joke around, they also make fun of
-progressives. \[...\] He pretends to be a Nazi, and when you joke
-around, you pretend to be a Nazi, but he's actually a Nazi. And so it
-just feels like because of this dynamic, \[...\] and because Nick
-Fuentes has said explicitly that he uses humor and irony as a way to get
-his Holocaust denial or racism–to give cover to it–he's literally said
-that explicitly. That makes it even more dangerous. 
+think you shouldn't talk to Fuentes, but the gigachad thing is the
+reason I think you shouldn't have dinner with Fuentes.  Because you and
+him make the same jokes. When you're joking around with him, you're
+making fun of progressives. And when conservatives joke around, they
+also make fun of progressives. \[...\] He pretends to be a Nazi, and
+when you joke around, you pretend to be a Nazi, but he's actually a
+Nazi. And so it just feels like because of this dynamic, \[...\] and
+because Nick Fuentes has said explicitly that he uses humor and irony as
+a way to get his Holocaust denial or racism–to give cover to it–he's
+literally said that explicitly. That makes it even more dangerous. 
 
 Destiny: Okay.
 
@@ -12695,8 +12691,8 @@ Destiny: Okay, if I said that, then I was mistaken. What I should have
 said was I don't want to call him a Nazi. If you want to call them Nazi
 and I did say that, go for it, that's on you–
 
-Destiny: You called him a Nazi on Twitter. You said he's basically a
-Nazi like two hours ago 
+Me: You called him a Nazi on Twitter. You said he's basically a Nazi
+like two hours ago 
 
 Destiny: Sure, then maybe I do sometimes, it's back and forth. What is
 your even your problem with me? \[...\] Okay, hold on, the way that I
@@ -12988,9 +12984,9 @@ which is the exact thing that he needs and wants.
 
 Destiny: Yeah, we're retreading on this and I'll reiterate my
 \[inaudible\] and then you can go back again, if you want, I guess. I
-think the cover's are already there because these words have been
-destroyed. So now I'm just playing with them the same way that everybody
-else has. These words mean nothing anymore.
+think the cover's already there because these words have been destroyed.
+So now I'm just playing with them the same way that everybody else has.
+These words mean nothing anymore.
 
 Me: So if you never used the word, how would that provide cover for him?
 
