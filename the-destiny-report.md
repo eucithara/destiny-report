@@ -1731,8 +1731,8 @@ He read aloud a chat message that said: "I think you might be able to
 report her to her school for ethics violations. She's psychoanalyzing
 people publicly."
 
-On October 1, 2021, Destiny posted in his offline chat: *Tell Ana if she
-leaks my sexting I might have some pics to share.*
+On November 1, 2021, Destiny posted in his offline chat: *Tell Ana if
+she leaks my sexting I might have some pics to share.*
 
 Ana took this as a threat to leak her nudes and would later refer to it
 as sexual abuse.
